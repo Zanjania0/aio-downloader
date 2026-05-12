@@ -7,6 +7,286 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:17
+---
+
+## SoftNetConnect — post 9280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕روزنامهٔ نیویورک تایمز و ارزیابی‌های اطلاعاتی آمریکا:
+
+ایران دوباره به حدود ۹۰٪ تأسیسات زیرزمینی نگهداری و شلیک موشک خود در سراسر کشور دسترسی پیدا کرده است.
+
+از ۳۳ پایگاه موشکی در امتداد تنگه هرمز، ۳۰ پایگاه دوباره عملیاتی شده‌اند.
+
+نهادهای اطلاعاتی آمریکا معتقدند با وجود ماه‌ها حمله، بخش بزرگی از زیرساخت موشکی ایران هنوز فعال است.
+
+پرتابگرهای متحرک موشک هنوز می‌توانند:
+موشک‌ها را بین پایگاه‌ها جابه‌جا کنند
+یا در بعضی مکان‌ها مستقیماً شلیک انجام دهند.
+
+فقط ۳ پایگاه موشکی در نزدیکی تنگه هرمز هنوز کاملاً غیرقابل استفاده‌اند.
+
+همچنین گفته شده ایران هنوز حدود:
+
+۷۰٪ ذخیره موشکی قبل از جنگ خود را حفظ کرده
+
+و حدود ۷۰٪ پرتابگرهای متحرک موشکی را همچنان در اختیار دارد.
+</div>
+
+## SoftNetConnect — post 9279
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9279_1778622463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله ها تا الان ثبت شده در مرکز لرزه نگاری
+</div>
+
+## SoftNetConnect — post 9278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صداسیما:
+مردم تهران هوشیار باشن، پس لرزه ها هنوز ادامه داره
+</div>
+
+## SoftNetConnect — post 9277
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9277_1778622464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله ها تا الان ثبت شده در مرکز لرزه نگاری
+</div>
+
+## SoftNetConnect — post 9276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نرخ پمپ بنزین در ایران افزایش یافت و پمپ بنزین های شلوغ شدن
+</div>
+
+## SoftNetConnect — post 9275
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زلزله در تهران
+</div>
+
+## SoftNetConnect — post 9274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا همه آرش آنالیز شدن میگن تست هسته ای بود
+</div>
+
+## SoftNetConnect — post 9273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا همه آرش آنالیز شدن میگن تست هسته ای بود
+</div>
+
+## SoftNetConnect — post 9272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دقایقی پیش پس لرزه ۲.۶ ریشتری در پردیس تهران
+</div>
+
+## SoftNetConnect — post 9271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دقایقی پیش پس لرزه ۲.۶ ریشتری در پردیس تهران
+</div>
+
+## SoftNetConnect — post 9270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازم زلزله
+</div>
+
+## SoftNetConnect — post 9269
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9269_1778622464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تمام پایگاه ها و هلال اهمر در تهران به حالت آماده باش در اومدن، تهرانیا امشب حتما مراقب باشین و از زیر لوستر و دم پنجره فاصله بگیرین
+</div>
+
+## SoftNetConnect — post 9268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️گزارش مقدماتی زمین‌لرزه: بزرگی: ۴.۶ ریشتر 
+📍محل وقوع: مرز استانهای تهران و مازندران حوالی پرديس تاریخ و زمان وقوع به وقت محلی: 1405/02/22 23:46:07 مدت زمان: 10 ثانیه عمق زمین‌لرزه: 10 کیلومتر نزدیک‌ترین شهرها: 8 کیلومتری پرديس (تهران) 10 کیلومتری…
+</div>
+
+## SoftNetConnect — post 9267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢مرکز لرزه‌نگاری: لحظاتی پیش زلزلهٔ 4.6 ریشتری مرز استان‌های تهران و مازندران رو لرزوند.
+</div>
+
+## SoftNetConnect — post 9266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زلزله در تهران
+</div>
+
+## SoftNetConnect — post 9265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زلزله‌ای به بزرگی ۳.۴ ریشتر در عمق ۸ کیلومتر زمین پردیس تهران را لرزاند
+</div>
+
+## SoftNetConnect — post 9264
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9264_1778622466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زلزله‌ای به بزرگی ۳.۴ ریشتر در عمق ۸ کیلومتر زمین پردیس تهران را لرزاند
+</div>
+
+## SoftNetConnect — post 9263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زلزله در تهران
+</div>
+
+## drtel — post 58444
+
+<div align="center">
+  <img src="telegram/content/drtel_58444_1778622466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهران دقايقی پیش مجددا لرزید؛ پَس لزره‌ست.
+
+@DrTeL
+</div>
+
+## drtel — post 58443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم خونمون رو گسل هست ولی الان بحث بحث وطنه
+</div>
+
+## drtel — post 58442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه خدا درباره زلزله چند دقیقه پیش تهران :
+
+مسئول‌های ایران خیلی مغرورن، فکر میکنن هیچ چیزی تکونشون نمیده، ولی ما فرستادیم یه لرزش خیلی خوشگل رو!
+میدونید ما لرزشای زیبایی داریم، خیلی زیبا. لرزش‌های ما در دنیا بهترین هستن همونطور که خودمون هستیم.
+این فقط شروعی برای ما بود، با عزرائیل هماهنگ کردم، اگه اونا به ظلم ادامه بدن، اتفاقات بدی براشون میفته، خیلی بد...
+از توجه شما به این موضوع سپاسگزارم
+خداوند الرحمن الرحیم
+
+@DrTeL
+</div>
+
+## drtel — post 58441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مرکز لرزه‌نگاری:
+یه زلزله 4.6 ریشتری دقایقی پیش مرز تهران و مازندرانو لرزوند؛
+
+محل وقوع دقیق زمین لرزه مرز استانهای تهران و مازندران  - حوالی پرديس
+تاریخ و زمان وقوع به وقت محلی: 1405/02/22 23:46:07
+عمق زمین‌لرزه: 10 کیلومتر
+
+نزدیک‌ترین شهرها:
+8 کیلومتری پرديس (تهران)
+10 کیلومتری بومهن (تهران)
+11 کیلومتری رودهن (تهران)
+    
+نزدیکترین مراکز استان:
+41 کیلومتری تهران
+77 کیلومتری كرج
+@DrTeL
+</div>
+
+## drtel — post 58440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوسفند اون پدر کسکش پسرته چشاتو باز کن زده ساعت 20 ، اونی که تو میگی utc ساعت جهانیه
+</div>
+
+## drtel — post 58438
+
+<div align="center">
+  <img src="telegram/content/drtel_58438_1778622467.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمقا زده ساعت 5 و 11 دقیقه وای‌ مگه‌ میشه اینهمه گوسفند ادمین یه کانال باشن
+</div>
+
+## drtel — post 58437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کص موتور این که زده ساعت 8
+</div>
+
+## drtel — post 58436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله تهران به مرکز پردیس، 3.4 ریشتر بود. @DrTeL
+</div>
+
+## drtel — post 58435
+
+<div align="center">
+  <img src="telegram/content/drtel_58435_1778622467.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله تهران به مرکز پردیس، 3.4 ریشتر بود.
+
+@DrTeL
+</div>
+
+## drtel — post 58434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدا : ترامپ خایه نداشت خودم زدم.
+
+@DrTeL
+</div>
+
+## drtel — post 58433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این بار دیگه خدا زد
+</div>
+
+## drtel — post 58432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسمی ؛ تهران لرزید.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 23:35
 ---
 
