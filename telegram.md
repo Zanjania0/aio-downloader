@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 11:53
+---
+
+## SoftNetConnect — post 9293
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9293_1778660624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حضور تنها فاکینگ 53 جنگنده F-16 آمریکایی در پایگاه شاهزاده سلطان عربستان 😐
+</div>
+
+## SoftNetConnect — post 9292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیروز حزب الله حملات گسترده پهبادی به پایگاه های شمال اسرائیل انجام داده که از ده پهباد تنها سه پهباد رهگیری شده
+</div>
+
+## SoftNetConnect — post 9291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غضنفری:شواهد و قرائن نشان می‌دهد که آمریکا و اسرائیل قصد انجام یک عملیات گسترده برای تصرف برخی از جزایر جنوب را دارند
+</div>
+
+## SoftNetConnect — post 9290
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨بر خلاف ادعا پاکستان و صدا و سیما ، شبکه خبری NDTV تصاویر ماهواره‌ای با وضوح بالا منتشر کرده که از شرکت Vantor گرفته شده‌اند و ظاهراً گزارش‌ها را تأیید می‌کنند مبنی بر اینکه پاکستان دست‌کم یک فروند هواپیمای ترابری نظامی C-130H متعلق به نیروی هوایی ایران را…
+</div>
+
+## SoftNetConnect — post 9289
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9289_1778660626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨بر خلاف ادعا پاکستان و صدا و سیما ، شبکه خبری NDTV تصاویر ماهواره‌ای با وضوح بالا منتشر کرده که از شرکت Vantor گرفته شده‌اند و ظاهراً گزارش‌ها را تأیید می‌کنند مبنی بر اینکه پاکستان دست‌کم یک فروند هواپیمای ترابری نظامی C-130H متعلق به نیروی هوایی ایران را در پایگاه هوایی نورخان نیروی هوایی پاکستان پناه داده یا نگهداری کرده است.
+</div>
+
+## SoftNetConnect — post 9288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الجزیره: منابع دیپلماتیک می‌گویند که ۱۱۲ کشور هم‌اکنون از پیش‌نویس قطعنامه پیشنهادی آمریکا به شورای امنیت سازمان ملل درباره تنگه هرمز حمایت می‌کنند.
+</div>
+
+## SoftNetConnect — post 9287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕کیهان: اگر مذاکره کنیم جنگ می‌شود؛ مذاکره نکنیم جنگ نمی‌شود
+</div>
+
+## SoftNetConnect — post 9286
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9286_1778660627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ در تروث سوشال: من تو رو میخوام
+</div>
+
+## SoftNetConnect — post 9285
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9285_1778660627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ در تروث پستی گزاشته که ونزوئلا رو به عنوان ایالت ۵١ ام آمریکا نشون میده
+</div>
+
+## SoftNetConnect — post 9281
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9281_1778660628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت خیابون‌ها و پارک‌های پردیس تهران پس از زلزله‌های امشب که ملت از خونه زدن بیرون و میخوان شبو همون بیرون بخوابن.
+</div>
+
+## drtel — post 58451
+
+<div align="center">
+  <a href="telegram/content/drtel_58451_1778660632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گوشه‌ای از هنرنمایی‌های بانو سویینی تو سریال جدیدش "یوفوریا | Euphoria" که این روزها حسابی جنجال به پا کرده.
+
++ به شدت هندزفری لازم🔞
+
+
+[ ارزش دانلود تا ناموس بالا ]
+
+@DrTeL
+</div>
+
+## drtel — post 58450
+
+<div align="center">
+  <a href="telegram/content/drtel_58450_1778660635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A22🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## drtel — post 58449
+
+<div align="center">
+  <a href="telegram/content/drtel_58449_1778660637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاید باورتون نشه ولی عراقچی حتی کراش دخترای اروپایی هم شده :
+
+
+@DrTeL
+</div>
+
+## drtel — post 58445
+
+<div align="center">
+  <a href="telegram/content/drtel_58445_1778660639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهران دقايقی پیش مجددا لرزید؛ پَس لزره‌ست. @DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:17
 ---
 
