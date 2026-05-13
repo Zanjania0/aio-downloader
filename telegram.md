@@ -7,6 +7,458 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 20:13
+---
+
+## SoftNetConnect — post 9332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خارجه عراقچی به هند رسید
+</div>
+
+## SoftNetConnect — post 9331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢 کشور لبنان شکایتی رسمی به سازمان ملل ارائه کرده و ایران (جمهوری‌اسلامی) رو به نقض کنوانسیون وین ۱۹۶۱ در مورد روابط دیپلماتیک متهم کرده؛ تو این شکایت، ایران به دخالت مستقیم و آشکار تو امور داخلی لبنان و کشوندن این کشور به جنگ متهم شده.
+</div>
+
+## SoftNetConnect — post 9330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداشی کشونه
+</div>
+
+## SoftNetConnect — post 9329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣️کانفیگ ها ضریب ندارند.
+
+🗣️محدودیت کاربر و زمان ندارند.
+
+🗣️برای تمامی اپلیکیشن های خارجی ساخته شده.
+
+🗣️برنامه های نپستر و ویتوری.
+
+🗣️تمامی کانفیگ ها ساب دارند.
+
+💵پرداخت ارزی و ریالی (ساعت یازده پرداخت ریالی بسته میشود)
+
+🆕گیگی 190 هزار تومان
+
+
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 9328
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9328_1778690588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت خودرو ساز آلمانی فولکس‌واگن به یک مشارکت با شرکت دفاعی اسرائیلی « رافائل » برای تغییر خط تولید کارخانه فولکس‌واگن در اوزنابروک از تولید خودرو به ساخت کامیون‌های نظامی برای گنبد آهنی و احتمالاً سیستم‌های دفاع لیزری پرتو آهنی نزدیک شده است.
+
+موشک‌ها و قطعات اصلی همچنان در اسرائیل تولید می‌شوند.
+آلمان خودروها و مونتاژ را بر عهده دارد.
+</div>
+
+## SoftNetConnect — post 9327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد کُرد در گفتگو با کانال۱۳ اسرائیل: در واقع خود پرزیدنت ترامپ مانع از طرح اقدام ما علیه حکومت ایران شد و اتهامات او در مورد ضبط سلاح های معترضین در ایران توسط کُردها، ناعادلانه و غیرمنطقی است
+</div>
+
+## SoftNetConnect — post 9326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد کُرد در گفتگو با کانال۱۳ اسرائیل:
+
+در واقع خود پرزیدنت ترامپ مانع از طرح اقدام ما علیه حکومت ایران شد و اتهامات او در مورد ضبط سلاح های معترضین در ایران توسط کُردها، ناعادلانه و غیرمنطقی است
+</div>
+
+## SoftNetConnect — post 9325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢صدای جنگنده در ارتفاع پایین در شیراز و شنیده شدن انفجار
+</div>
+
+## SoftNetConnect — post 9324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐رئیس ستاد ارتش اسرائیل:
+جنگ با ایران پایان نیافته و برای از سرگیری جنگ در هوشیاری کامل قرار داریم. از یهودا و سامره تا تهران برای دفاع و حمله آماده‌ایم.
+</div>
+
+## SoftNetConnect — post 9322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امارات متحده عربی اکنون در اطراف زیرساخت‌های نفتی خود قفس‌های ضدپهپاد می‌سازد.
+</div>
+
+## SoftNetConnect — post 9321
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9321_1778690589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امارات متحده عربی اکنون در اطراف زیرساخت‌های نفتی خود قفس‌های ضدپهپاد می‌سازد.
+</div>
+
+## SoftNetConnect — post 9320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ حتمیه
+</div>
+
+## SoftNetConnect — post 9319
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9319_1778690590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸لحظه پیاده شدن ترامپ از هواپیمای اختصاصی ریاست‌جمهوری آمریکا (Air Force One) در پکن و رسماً سفر دولتی دو روزه خود به چین را آغاز کرد.
+</div>
+
+## SoftNetConnect — post 9318
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9318_1778690591.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚗
+⚡️ جنسن هوانگ، مدیرعامل انویدیا، و ایلان ماسک در پکن همراه رئیس‌جمهور ترامپ دیده می‌شوند.
+</div>
+
+## SoftNetConnect — post 9317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 از نمای دیگه ورود هواپیمای ترامپ در پکن و گروه استقبال کننده چینی
+</div>
+
+## SoftNetConnect — post 9316
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9316_1778690594.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 از نمای دیگه ورود هواپیمای ترامپ در پکن و گروه استقبال کننده چینی
+</div>
+
+## SoftNetConnect — post 9315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕بلومبرگ: صادرات نفت ایران از جزیره خارک برای اولین بار از زمان شروع جنگ متوقف شده است و تصاویر ماهواره‌ای نشان می‌دهد که مخازن ذخیره‌سازی نفت تقریباً به ظرفیت کامل خود رسیده‌اند.
+</div>
+
+## SoftNetConnect — post 9314
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9314_1778690597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ به پکن رسید
+</div>
+
+## SoftNetConnect — post 9313
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9313_1778690599.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ به پکن رسید
+</div>
+
+## drtel — post 58474
+
+<div align="center">
+  <a href="telegram/content/drtel_58474_1778690600.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شعر جدید و خاله شادونه طوری که محمود کریمی تو تجمع دیشب خونده :
+
+دشمن اگه نمی‌دونه بدونه ، رهبرمون هرچی بگه همونه
+اون میگه کِی ما ها بریم به خونه ، رهبرمون هرچی بگه همونه
+پیام هاش راه نجات‌مونه ، رهبرمون هرچی بگه همونه
+ما رو به اوج قله می‌رسونه ، رهبرمون هرچی بگه همونه
+غیوره مثل کوه پشتمونه ، رهبرمون هرچی بگه همونه
+@DrTeL
+</div>
+
+## drtel — post 58473
+
+<div align="center">
+  <img src="telegram/content/drtel_58473_1778690602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇 g23🅰
+
+✈️https://t.me/+RvVnWMHCqUc4YzFk
+</div>
+
+## drtel — post 58472
+
+<div align="center">
+  <a href="telegram/content/drtel_58472_1778690604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙میثاقی : درس میخونی؟
+
+🇮🇷 محمودی : آره تربیت بدنی.
+🎙میثاقی : کدوم دانشگاه؟
+
+🇮🇷 محمودی : بخدا نمی‌دونم، حضور ذهن ندارم :))
+
+@FUTBALLI18
+</div>
+
+## drtel — post 58471
+
+<div align="center">
+  <a href="telegram/content/drtel_58471_1778690607.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صفحه‌ی اسرائیل
+🇮🇱 به فارسی:
+وقتی (بزودی) به اسرائیل سفر کنید، این منظره زیبا از پنجره هواپیما در انتظار شماست.
+به امید دیدار در تل‌آویو یا تهران.
+
+@DrTeL
+</div>
+
+## drtel — post 58470
+
+<div align="center">
+  <img src="telegram/content/drtel_58470_1778690609.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امارات
+🇦🇪 در حال ساخت قفس‌های ضدپهپادی اطراف مراکز مهم و نفتی خودشه که اگر دوباره جنگی اتفاق افتاد آسیب کمتری ببینن.
+
+@DrTeL
+</div>
+
+## drtel — post 58469
+
+<div align="center">
+  <img src="telegram/content/drtel_58469_1778690610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لحظه ورود ترامپ به چین|پکن همراه ایلان ماسک @DrTeL
+</div>
+
+## drtel — post 58468
+
+<div align="center">
+  <a href="telegram/content/drtel_58468_1778690611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد از حدود 15 ساعت پرواز، ترامپ به همراه تیمش وارد پکن، پایتخت چین شد : @DrTeL
+</div>
+
+## drtel — post 58467
+
+<div align="center">
+  <a href="telegram/content/drtel_58467_1778690614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 روبیو هم به همراه ترامپ راهی چین شده؛ حالا چی پوشیده؟ ست نایکی که مادورو روز دستگیریش پوشیده بود... @DrTeL
+</div>
+
+## drtel — post 58466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش من خودم خونم سیم کشی برق نداره ولی الان بحث بحث وطنه
+</div>
+
+## drtel — post 58465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گفته کاربران؛ تو بعضی از مناطق کشور دارن برق‌هارو به مدت 1 الی 2 ساعت میبرن!
+
++این درحالیه که هنوز کامل وارد تابستون نشدیم…
+
+@DrTeL
+</div>
+
+## drtel — post 58464
+
+<div align="center">
+  <img src="telegram/content/drtel_58464_1778690616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شرکت اپل
+🍏 اولین نمایندگی‌ رسمی خودش رو تو افغانستان
+🇦🇫 افتتاح کرد.
+
+
+❌این خبر هم مثل خبر بالایی فیکه؛
+موضوع ازاین قراره که یه تاجر افغان اومده یه فروشگاه محصولات اپل تو افغانستان افتتاح کرده و گفته اینجا «فروشنده مجاز» اپله، ولی بعضی کانال‌ها و پیج‌ها خبر رو جوری پخش کردن که انگار خود شرکت اپل رسماً تو افغانستان نمایندگی یا Apple Store زده.
+درواقع نه اپل شعبه رسمی تو افغانستان افتتاح کرده، نه Apple Store رسمی اونجاست، ماجرا فقط یه فروشگاه محلیه که محصولات اپل میفروشه و احتمالاً مجوز فروش یا همکاری محدود داره.
+
+@DrTeL | Thekabultribune
+</div>
+
+## drtel — post 58462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابا نمی‌گفتی فیکه
+حداقل یه بهونه داشتیم می‌گفتیم مثلا هانتا ویروس گرفتیم بخاطر اونه
+</div>
+
+## drtel — post 58461
+
+<div align="center">
+  <img src="telegram/content/drtel_58461_1778690617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبری تو فضای مجازی وایرال شده که ادعا می‌کنه «هانتا ویروس» باعث کوچک شدن آلت تناسلی مردان تا 7.6 سانت میشه!
+
+
+❌ این خبر کاملاً فیکه و منبعش یه صفحه توییتری ترکیه‌ایه🇹🇷 که معمولاً شایعات و خبرهای وایرالِ بدون منبع معتبر رو منتشر می‌کنه.
+هانتا ویروس ممکنه تو برخی موارد باعث اختلال در نعوظ بشه، اما هیچ مدرک علمی معتبری درباره کوچک شدن آلت تناسلی بر اثر این ویروس وجود نداره.
+
+@DrTeL
+</div>
+
+## drtel — post 58460
+
+<div align="center">
+  <img src="telegram/content/drtel_58460_1778690617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r23🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## drtel — post 58458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیو وایرال شده از چَک خوردن "امانوئل مکرون" رئیس‌جمهور فرانسه🇫🇷 از همسرش "بریژیت" تو خاک ویتانم🇻🇳 : + مکرون بعد این سیلی که خورد، واسه اینکه همه چی رو عادی نشون بده، خواست دست همسرش رو بگیره که بازم زنِ پریودش این بشر رو کیر کرد. @DrTeL
+</div>
+
+## drtel — post 58457
+
+<div align="center">
+  <img src="telegram/content/drtel_58457_1778690618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زارعیان، معاون شرکت مخابرات :
+اینترنت بعد از تموم شدن شرایط جنگی به حالت عادی برمیگرده، ولی منطقی نیست اینترنت داخلی و بین‌الملل یه قیمت باشن؛
+
+هزینه اینترنت خارجی بیشتره و طبیعتاً باید با قیمت بالاتری ارائه بشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58454
+
+<div align="center">
+  <a href="telegram/content/drtel_58454_1778690619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این عکس با عنوان " اوه اوه زید وینی دیلدو کمری خریده تا ترتیب وینیسیوس رو بده😳😂" داره وایرال میشه؛
+
+
+❌این شات با هوش مصنوعی درست شده، عکس اصلی مربوط به سال 2007 که مدونا، خواننده آمریکایی با این دیلدو شکار شده بود.
+
+@FUTBALLI18
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 11:53
 ---
 
