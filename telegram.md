@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 01:26
+---
+
+## SoftNetConnect — post 9343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر انرژی آمریکا: ایران فقط چند هفته با دستیابی به سلاح هسته ای فاصله دارد
+</div>
+
+## SoftNetConnect — post 9342
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9342_1778709375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طی یک حرکتی که بسیار منطقی اتوبوس تیم ملی رو با شعار مرگ بر آمریکا بدرقه کردن تا بره آمریکا.
+</div>
+
+## SoftNetConnect — post 9341
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9341_1778709376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سباستین گورکا مقام ارشد ضدتروریسم کاخ سفید:
+
+
+🇺🇸 ترامپ وصیت نامه ایی نوشته و اونو تو کشوی میزش تو کاخ سفید گزاشته و به جی دی ونس دستور داده تا در صورت ترور و مرگش از اون ازش استفاده کنه
+</div>
+
+## SoftNetConnect — post 9340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕طبق گزارش NBC که به داده‌های ناوبری استناد کرده است.چندین کشتی باری و نفتکش مرتبط با چین در ۲۴ ساعت گذشته از تنگه هرمز عبور کرده‌اند
+</div>
+
+## SoftNetConnect — post 9339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 رویترز: عربستان و کویت درجریان جنگ ۴۰ روزه به هدف‌های شبه‌نظامی‌های طرفدار ایران تو عراق (حشدالشعبی) حمله کردن.
+</div>
+
+## SoftNetConnect — post 9338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕شبکه ۱۳ اسرائیل گزارش داده که بنیامین نتانیاهو اخیراً با شیخ محمد بن زاید دیدار یا گفت‌وگو کرده است. این دیدار در شرایطی بوده که: احتمال درگیری دوباره با ایران وجود دارد و همچنین حملاتی علیه امارات انجام شده است یعنی دو طرف درباره وضعیت امنیتی منطقه و…
+</div>
+
+## SoftNetConnect — post 9337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕شبکه ۱۳ اسرائیل گزارش داده که بنیامین نتانیاهو اخیراً با شیخ محمد بن زاید دیدار یا گفت‌وگو کرده است. این دیدار در شرایطی بوده که: احتمال درگیری دوباره با ایران وجود دارد و همچنین حملاتی علیه امارات انجام شده است یعنی دو طرف درباره وضعیت امنیتی منطقه و…
+</div>
+
+## SoftNetConnect — post 9336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕شبکه ۱۳ اسرائیل گزارش داده که بنیامین نتانیاهو اخیراً با شیخ محمد بن زاید دیدار یا گفت‌وگو کرده است. این دیدار در شرایطی بوده که: احتمال درگیری دوباره با ایران وجود دارد و همچنین حملاتی علیه امارات انجام شده است یعنی دو طرف درباره وضعیت امنیتی منطقه و…
+</div>
+
+## SoftNetConnect — post 9335
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕شبکه ۱۳ اسرائیل گزارش داده که بنیامین نتانیاهو اخیراً با شیخ محمد بن زاید دیدار یا گفت‌وگو کرده است.
+
+این دیدار در شرایطی بوده که:
+
+احتمال درگیری دوباره با ایران وجود دارد
+و همچنین حملاتی علیه امارات انجام شده است
+
+یعنی دو طرف درباره وضعیت امنیتی منطقه و تهدیدهای ایران صحبت کرده‌اند.
+</div>
+
+## SoftNetConnect — post 9334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 هفتمین رأی‌گیری سنای آمریکا توسط دموکرات ها برای پایان جنگ با جمهوری اسلامی بازهم شکست خورد.
+</div>
+
+## SoftNetConnect — post 9333
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9333_1778709377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+♨️ وزارت امور خارجه کویت سفیر ایران را احضار کرد و پس از نفوذ یک واحد سپاه پاسداران به جزیره بوبیان و درگیری آنها با نیروهای کویتی، یادداشت رسمی اعتراض را به وی تحویل داد.
+</div>
+
+## drtel — post 58491
+
+<div align="center">
+  <img src="telegram/content/drtel_58491_1778709378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴"نصرالله معین" قراره واسه تیم ملی فوتبال به مناسبت حضور تو جام جهانی 2026، آهنگ بخونه!
+
+@FUTBALLI18
+</div>
+
+## drtel — post 58490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناموسا ببین از کیا پول خواستیم
+</div>
+
+## drtel — post 58489
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش میشه جزئیات افتادنش رو تعریف کنی؟ میترسم دانلود کنم حجمم تموم شه
+</div>
+
+## drtel — post 58488
+
+<div align="center">
+  <a href="telegram/content/drtel_58488_1778709378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛ پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد... @DrTeL
+</div>
+
+## drtel — post 58487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقد بیشعوریم
+</div>
+
+## drtel — post 58486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چطور اونوقتی که سکس میکردن از ما کمک نمیخواست،الان میخواد؟
+</div>
+
+## drtel — post 58485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکه میاد لینک دونیت میزاره با اینکه چند ماه درامد نداشته چون مردم اهنگاشو گوش نمیدن چیز خنده داری نیست
+بعد همین بیاد یه تبلیغ بت بکنه کلی مردم فحشش میدن
+</div>
+
+## drtel — post 58484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پول عمل زید پوبون هم ما باید بدیم
+</div>
+
+## drtel — post 58482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
+
+پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
+
+@DrTeL
+</div>
+
+## drtel — post 58481
+
+<div align="center">
+  <img src="telegram/content/drtel_58481_1778709380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق بررسی یکی از کاربرها از تراکنش‌های آدرس ولت یه کانال فروش فیلترشکن؛ این کانال از شروع جنگ تا به امروز، 608,000 دلار یعنی تقریبا ۹۳ میلیارد تومن درآمد داشته! @DrTeL
+</div>
+
+## drtel — post 58478
+
+<div align="center">
+  <a href="telegram/content/drtel_58478_1778709380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات سنگین امروزِ اسرائیل به جنوب لبنان:
+
+@DrTeL
+</div>
+
+## drtel — post 58477
+
+<div align="center">
+  <img src="telegram/content/drtel_58477_1778709381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس سنای آمریکا برای هفتمین بار تو سال 2026 طرحی رو با عنوان "محدود کردن اختیارات جنگی دونالد ترامپ" به رای گذاشت؛
+این طرح با "50 رای مخالف" و "49 رای موافق" رد شد.
+
+@DrTeL
+</div>
+
+## drtel — post 58476
+
+<div align="center">
+  <img src="telegram/content/drtel_58476_1778709381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شعر جدید و خاله شادونه طوری که محمود کریمی تو تجمع دیشب خونده : دشمن اگه نمی‌دونه بدونه ، رهبرمون هرچی بگه همونه اون میگه کِی ما ها بریم به خونه ، رهبرمون هرچی بگه همونه پیام هاش راه نجات‌مونه ، رهبرمون هرچی بگه همونه ما رو به اوج قله می‌رسونه ، رهبرمون…
+</div>
+
+## drtel — post 58475
+
+<div align="center">
+  <a href="telegram/content/drtel_58475_1778709382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز لبنان
+🇱🇧 شکایتی رسمی از ایران به سازمان ملل ارائه کرده و ایران رو به 3مورد زیر متهم کرده:
+
+1-نقض کنوانسیون وین:
+عدم هماهنگی سفارت ایران با مقامات لبنانی برای جابه‌جایی دیپلمات‌ها قبل از حمله اسرائیل (8 مارس)، ثبت نکردن برخی افراد کشته‌شده به عنوان دیپلمات رسمی، و استفاده از اماکن دیپلماتیک برای فعالیت‌های ناسازگار با وظایف دیپلماتیک.
+2-دخالت مستقیم و آشکار ایران تو لبنان:
+دخالت مستقیم سپاه و سفارت ایران در امور داخلی لبنان و نادیده گرفتن تصمیمات دولت لبنان.
+3-کشوندن لبنان به جنگ:
+درگیرکردنِ لبنان تو جنگ ویرانگر بدون اراده دولت لبنان، که منجر به هزاران کشته، بیش از یک میلیون آواره، ویرانی زیاد و اشغال بخش‌هایی توسط اسرائیل شده.
+
+@DrTeL | The Arab New
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 20:13
 ---
 
