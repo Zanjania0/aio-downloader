@@ -7,6 +7,428 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 19:52
+---
+
+## SoftNetConnect — post 9407
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🇺🇸 ترامپ به فاکس نیوز: رهبر چین پیشنهاد داده که تو موضوع ایران کمک کنه و همچنین وعده داده که به ایران تجهیزات نظامی منتقل نکنه. اون می‌خواد تنگه هرمز باز بمونه.
+</div>
+
+## SoftNetConnect — post 9406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌏 فرمانده CENTCOM، دریاسالار برد کوپر: مذاکرات با ریسک بالا ادامه داره. وظیفه ما اینه که آماده باشیم و هستیم. بیش از 50 هزار سرباز در منطقه عملیات فرماندهی مستقر شدن. ما فقط دو قایق سریع ایرانی یا سه قایق در هرمز می‌بینیم در حالی که قبلاً بین 20 تا 30 قایق…
+</div>
+
+## SoftNetConnect — post 9404
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9404_1778775723.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌏 فرمانده CENTCOM، دریاسالار برد کوپر:
+
+مذاکرات با ریسک بالا ادامه داره.
+
+وظیفه ما اینه که آماده باشیم و هستیم.
+بیش از 50 هزار سرباز در منطقه عملیات فرماندهی مستقر شدن.
+
+ما فقط دو قایق سریع ایرانی یا سه قایق در هرمز می‌بینیم در حالی که قبلاً بین 20 تا 30 قایق مشاهده می‌کردیم.
+
+ایران قادر به تولید موشک‌ها یا پهپادهای بیشتری نیست.
+
+امروز، حماس، حزب‌الله و حوثی‌ها همگی از عرضه و پشتیبانی تسلیحاتی ایران قطع شدن.
+
+این نتیجه نه از پیش تعیین شده بود و نه تصادفی به دست اومده. این نقطه اوج ماه ها برنامه ریزی دقیقه این نتایج بدون هزینه به دست نمیاد.
+</div>
+
+## SoftNetConnect — post 9403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢روزنامه اعتماد آنلاین: اینترنت بین الملل خرداد ماه وصل میشه هفته آینده به ریاست عارف معاون پزشکیان قراره زمینه‌های لازم برای رفع قطعی اینترنتی فراهم بشه تا حداکثر تا وسطای خردادماه اینترنت وصل بشه
+</div>
+
+## SoftNetConnect — post 9402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢روزنامه اعتماد آنلاین: اینترنت بین الملل خرداد ماه وصل میشه هفته آینده به ریاست عارف معاون پزشکیان قراره زمینه‌های لازم برای رفع قطعی اینترنتی فراهم بشه تا حداکثر تا وسطای خردادماه اینترنت وصل بشه
+</div>
+
+## SoftNetConnect — post 9401
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9401_1778775725.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢روزنامه اعتماد آنلاین:
+
+اینترنت بین الملل خرداد ماه وصل میشه
+
+هفته آینده به ریاست عارف معاون پزشکیان قراره زمینه‌های لازم برای رفع قطعی اینترنتی فراهم بشه تا حداکثر تا وسطای خردادماه اینترنت وصل بشه
+</div>
+
+## SoftNetConnect — post 9400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌏INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «هندو-پاسیفیک»ایندوپکام: تفنگداران دریایی ایالات متحده، واحد یازدهم اعزامی تفنگداران دریایی، در حال انجام تیراندازی رزمی بر روی ناو جنگی یو اس اس کامستاک (LSD 45) در اقیانوس هند هستند. واحد یازدهم اعزامی دریایی،…
+</div>
+
+## SoftNetConnect — post 9398
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9398_1778775726.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌏INDOPACOM، فرماندهی نظامی آمریکا برای منطقهٔ «هندو-پاسیفیک»ایندوپکام: تفنگداران دریایی ایالات متحده، واحد یازدهم اعزامی تفنگداران دریایی، در حال انجام تیراندازی رزمی بر روی ناو جنگی یو اس اس کامستاک (LSD 45) در اقیانوس هند هستند. واحد یازدهم اعزامی دریایی، که بر روی گروه آماده آبی-خاکی باکسر(USS BOXER) مستقر شده است، یک نیروی پایدار و قابل اعتماد رزمی است که به بازدارندگی و واکنش به بحران در منطقه عملیاتی ناوگان هفتم ایالات متحده کمک می‌کند.
+</div>
+
+## SoftNetConnect — post 9397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون حذفیات برای دیدن فیلم و سریال با زیرنویس و دوبله فارسی در زمان قطع اینترنت:
+● www.myf2m.info
+● serialblog.blog.ir
+● www.filmaz.ir
+● movie-chi.ir (اشتراکی)
+● filmjoo.xyz
+● filmkio.run (اشتراکی)
+● dls2.iran-gamecenter-host.com/DonyayeSerial
+● simbaapp.ir (نیمه‌اشتراکی)
+● movielix.ir (اشتراکی)
+● Kiamovie.ir (نیمه‌اشتراکی)
+● f2mc.top
+● serialblog.net
+● movieyaab.ir  پلتفرم جستجوی فیلم (پلتفرم خوبیه ازش حمایت کنید)
+تمامی سایت های بالا با اینترنت داخلی قابل استفاده هستند.
+https://www.f2mux.top/
+www.f2my.top
+https://avasaraf.top
+https://dls2.iran-gamecenter-host.com/DonyayeSerial/
+f2my.top
+</div>
+
+## SoftNetConnect — post 9396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل: عملیات علیه ایران پایان نیافته و ما حتی به پایان آن نزدیک نشده ایم
+</div>
+
+## SoftNetConnect — post 9395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا: باز شدن تنگه هرمز به نفع چین خواهد بود و انتظار داریم قیمت نفت در شش ماه آینده کاهش یابد
+</div>
+
+## SoftNetConnect — post 9394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نتانیاهو تأیید کرد
+✔️ در طول جنگ ایران و ائتلاف آمریکا و اسرائیل نتانیاهو بطور مخفیانه به امارات رفته و با بن زاید پادشاه امارات دیدار کرده که بزرگترین نزدیکی در میان این دو کشوره
+</div>
+
+## SoftNetConnect — post 9393
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9393_1778775727.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به سلامتی شی و چین یک پیک عرق سگی نابی رفت بالا
+😍
+</div>
+
+## SoftNetConnect — post 9392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل: عملیات علیه ایران پایان نیافته و ما حتی به پایان آن نزدیک نشده ایم
+</div>
+
+## SoftNetConnect — post 9391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا: باز شدن تنگه هرمز به نفع چین خواهد بود و انتظار داریم قیمت نفت در شش ماه آینده کاهش یابد
+</div>
+
+## SoftNetConnect — post 9390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهای اولیه از توافقات میان چین و آمریکا میاد شامل مواردی : 
+🔴خرید بیشتر سویا از آمریکا 
+🔴خرید نفت بیشتر از آمریکا 
+🔴خرید بیشتر گاز مایع ( LNG ) 
+🔴خرید 200 جت بوئینگ 
+🔴ترغیب ایران به اعطای هرچیزی که ترامپ نیاز دارد
+</div>
+
+## SoftNetConnect — post 9389
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهای اولیه از توافقات میان چین و آمریکا میاد شامل مواردی :
+
+
+🔴خرید بیشتر سویا از آمریکا
+
+🔴خرید نفت بیشتر از آمریکا
+
+🔴خرید بیشتر گاز مایع ( LNG )
+
+🔴خرید 200 جت بوئینگ
+
+🔴ترغیب ایران به اعطای هرچیزی که ترامپ نیاز دارد
+</div>
+
+## SoftNetConnect — post 9388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما : از دیشب عبور 30 کشتی از  تنگه هرمز انجام پذیرفته است
+</div>
+
+## drtel — post 58519
+
+<div align="center">
+  <a href="telegram/content/drtel_58519_1778775730.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙مجری:
+با شی (رئیس‌جمهور چین) درباره حمایت چین از ایران حرف زدی؟
+
+ترامپ:
+بله؛
+اون گفت تجهیزات نظامی [به ایران] نمی‌ده و این حرف خیلی مهمیه.
+ولی همزمان گفت که مقدار زیادی از نفتشون رو از اونجا می‌خرن و دوست دارن همین‌طور ادامه بدن.
+
+@DrTeL
+</div>
+
+## drtel — post 58518
+
+<div align="center">
+  <img src="telegram/content/drtel_58518_1778775732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخعی، عضو کمیسیون انرژی مجلس:
+
+ما کسری بنزین داریم و قبل از جنگ هم روزانه 20 میلیون لیتر وارد میکردیم.
+الانم دوتا راه بیشتر نداریم؛
+یا سهمیه‌هارو کم کنیم یا قیمتارو افزایش بدیم.
+
+@DrTeL | خبرآنلاین
+</div>
+
+## drtel — post 58517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری اعتماد آنلاین:
+
+هفته‌ی آینده قراره اولین جلسه‌ی "ستاد ویژه ساماندهی و راهبری فضای مجازی کشور" برگزار بشه و احتمال میره که تا نیمه‌های خرداد ماه اینترنت بین‌الملل برای همه‌ی مردم وصل بشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58516
+
+<div align="center">
+  <a href="telegram/content/drtel_58516_1778775733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسکات بسنت، وزیرخزانه‌داری آمریکا درباره ایران:
+
+چیزی که داریم میبینیم اینه که توی جزیره‌ی خارک توی 3 روز گذشته هیچ بارگیری نفتی‌ای اتفاق نیفتاده؛
+ما باور داریم که انبارهاشون پر شده و هیچ‌کدوم از کشتی‌ها نمیتونن خارج بشن پس دارن تولید نفتشون رو متوقف میکنن.
+این یه رژیم شیطانیه که امسال حدود 30 , 40 هزار نفر رو که خیلیاشون معترضای مسالمت‌آمیز بودن رو اعدام کرده.
+اونا دیگه نمیتونن حقوق سربازاشونو بدن و حتی نمیتونن از خارج سلاح وارد کنن.
+بنظرم محاصره‌ی ترامپ تا الان موفقیت‌آمیز بوده و اونا دارن نفسای آخرشون رو میکشن.
+
+@DrTeL
+</div>
+
+## drtel — post 58515
+
+<div align="center">
+  <img src="telegram/content/drtel_58515_1778775735.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انگاری مشروب چینی ایلان ماسک رو سگ مست کرده، طوری که کصخلش در رفته؛ هرکسی که میاد باهاش عکس بگیره شکلک درمیاره و رفتارای عجیب از خودش نشون میده! خدمتکارای چینی هم که میبینن ثروتمند‌ترین مرد جهان شده شبیه بچه‌های 3 ساله، میان شراب رو از جلوی ایلان ماسک…
+</div>
+
+## drtel — post 58514
+
+<div align="center">
+  <a href="telegram/content/drtel_58514_1778775736.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انگاری مشروب چینی ایلان ماسک رو سگ مست کرده، طوری که کصخلش در رفته؛
+
+
+
+
+هرکسی که میاد باهاش عکس بگیره شکلک درمیاره و رفتارای عجیب از خودش نشون میده!
+خدمتکارای چینی هم که میبینن ثروتمند‌ترین مرد جهان شده شبیه بچه‌های 3 ساله، میان شراب رو از جلوی ایلان ماسک ورمیدارن و میزارن اونطرف‌تر.
+
+@DrTeL
+</div>
+
+## drtel — post 58513
+
+<div align="center">
+  <a href="telegram/content/drtel_58513_1778775739.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎉  بونوس ویژه ثبت‌نام – ۵۰۰٬۰۰۰ تومان رایگان
+
+
+💥 با ثبت‌نام در سایت، ۵۰۰٬۰۰۰ تومان بونوس رایگان دریافت کنید و شانس خود را امتحان کنید.
+
+
+🔥 چگونه کار می‌کند؟
+
+
+⬅️ ثبت‌نام کنید 
+
+⬅️بونوس ۵۰۰٬۰۰۰ تومانی دریافت کنید 
+
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+
+
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+
+⚽️  پوشش کامل مسابقات ورزشی 
+
+📊  پیش‌بینی با بهترین ضرایب 
+
+⚡️  تجربه سریع و حرفه‌ای
+
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+R24
+
+😀 کانال تلگرام: 
+
+🔴 @winro_io  
+
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+🔴 Winro.io
+
+سایت اصلی در روزهای آینده بازگشایی خواهد شد 
+✅
+</div>
+
+## drtel — post 58512
+
+<div align="center">
+  <a href="telegram/content/drtel_58512_1778775740.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپی که بعد فوت برادر بزرگ‌ترش بخاطر الکل، سمت این چیزها نمی‌رفت و بچه‌هاش رو هم نمیذاشت سمت الکل و سیگار و مواد برن؛
+
+تو چین به افتخار رئیس جمهور شی جین‌پینگ، یه پیک زد
+🍸
+
+@DrTeL
+</div>
+
+## drtel — post 58511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 14 May، روز عشق مجازیه. @DrTeL | National today
+</div>
+
+## drtel — post 58510
+
+<div align="center">
+  <img src="telegram/content/drtel_58510_1778775743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 14 May، روز عشق مجازیه.
+
+@DrTeL | National today
+</div>
+
+## drtel — post 58509
+
+<div align="center">
+  <a href="telegram/content/drtel_58509_1778775743.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایلان ماسکِ بی‌آبرو هم تا رسید گوشیش رو درآورد و از اینو اونور فیلم گرفت: @DrTeL
+</div>
+
+## drtel — post 58507
+
+<div align="center">
+  <a href="telegram/content/drtel_58507_1778775745.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه: @DrTeL
+</div>
+
+## drtel — post 58503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جنگ آمریکا
+🇺🇸 و چین
+🇨🇳 موقع دست دادن؛ ترامپ
+🇺🇸 به سمت شی
+🇨🇳 رفت، دست دادن و بعد جفت طرف سعی داشتن دست‌ِ طرف مقابل رو به سمت خودشون بِکشن که این صحنه خلق شد : @DrTeL
+</div>
+
+## drtel — post 58502
+
+<div align="center">
+  <a href="telegram/content/drtel_58502_1778775747.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لحظه ورود ترامپ به چین|پکن همراه ایلان ماسک @DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 11:41
 ---
 
