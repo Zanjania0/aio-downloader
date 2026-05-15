@@ -7,6 +7,287 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 20:01
+---
+
+## SoftNetConnect — post 9480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدر اعظم آلمان: با ترامپ صحبت کردم؛ ایران نباید سلاح هسته‌ای داشته باشه.
+</div>
+
+## SoftNetConnect — post 9479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز حزب الله ۳۰ بار آتش بس نقض کرده و از ابتدای هفته ۱۳۰ بار
+</div>
+
+## SoftNetConnect — post 9478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش خبرنگار همراه هیئت آمریکایی، پیش از سوار شدن به «ایرفورس وان»، کارکنان آمریکایی تمام وسایل و ههدایایی را که طرف چینی داده بود از جمله کارت‌ها، نشان‌ها، تلفن‌های موقت و اقلام هدیه جمع کردند و داخل سطل زباله انداختند و اجازه ندادند چیزی از چین وارد هواپیما شود.
+</div>
+
+## SoftNetConnect — post 9477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣️کانفیگ ها ضریب ندارند.
+
+🗣️محدودیت کاربر و زمان ندارند.
+
+🗣️برای تمامی اپلیکیشن های خارجی ساخته شده.
+
+🗣️برنامه های نپستر و ویتوری.
+
+🗣️تمامی کانفیگ ها ساب دارند.
+
+💵پرداخت ارزی و ریالی (ساعت یازده پرداخت ریالی بسته میشود)
+
+🆕گیگی 190 هزار تومان
+
+
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 9473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروهای تفنگداران دریایی ایالات متحده از یگان یازدهم تفنگداران روز گذشته تمرین‌های مقابله با پهپادهای کوچک را روی یک ناو هوانبرد کلاس آبی خاکی USS NAVY BOXER در اقیانوس هند انجام دادند.
+
+آنها هم‌اکنون در حال حرکت به سمت غرب آسیا (خاورمیانه) هستند تا در عملیات مربوط به ایران کمک کنند.
+
+تجهیزات استفاده‌شده در تصاویر:
+
+
+🔴 کارابین M4 مجهز به یک سیستم نشانه‌گیری پیشرفته برای مقابله با پهپادها
+
+
+🔴دستگاه جمر سیگنال دستی برای اختلال در کنترل پهپادهای کوچک
+
+
+🔴شاتگان
+</div>
+
+## SoftNetConnect — post 9472
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9472_1778862700.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تکذیب شد ولی کار امریکاست امکان زیاد
+</div>
+
+## SoftNetConnect — post 9471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🌏 سنتکام رسماً تأیید کرد که حمله به مدرسه میناب در روز اول جنگ ۴۰ روزه توسط یه بمب آمریکایی صورت گرفته
+💔
+</div>
+
+## SoftNetConnect — post 9470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9469
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: من از رئیس جمهور چین نخواستم که به ایران برای باز کردن تنگه هرمز فشار بیاورد.
+</div>
+
+## SoftNetConnect — post 9467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: ایران قادر به دسترسی به «غبار هسته‌ای» نیست زیرا کوه روی آن فرو ریخته و فقط چین و آمریکا می‌توانند به آن دسترسی پیدا کنند.
+</div>
+
+## SoftNetConnect — post 9466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: آخرین چیزی که الان بهش نیاز داریم جنگه.
+</div>
+
+## SoftNetConnect — post 9465
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9465_1778862701.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📈پس از سفر ترامپ و تیم اقتصادیش به چین، بازار سهام آمریکا باز هم رکورد تاریخی زد و حدود بیست درصد رشد رو تجربه کرد
+</div>
+
+## SoftNetConnect — post 9464
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: در مورد تایوان هیچ تعهدی به رئیس جمهور چین ندادم.
+</div>
+
+## SoftNetConnect — post 9463
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: ایران ممکنه اورانیومش رو به چین یا آمریکا تحویل بده.
+</div>
+
+## SoftNetConnect — post 9462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.
+</div>
+
+## SoftNetConnect — post 9461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ به رویترز: من مانعی ندارم که ایران برنامه هسته‌ای خودش رو برای ۲۰ سال متوقف کنه اما این باید یه تعهد واقعی باشه.
+</div>
+
+## drtel — post 58546
+
+<div align="center">
+  <a href="telegram/content/drtel_58546_1778862702.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ : اگه ایران واقعاً تضمین بده، 20 سال برنامه هسته‌ایش رو متوقف کنه می‌تونه کافی باشه، ولی این تضمین باید واقعی باشه، نه الکی و نمایشی؛ بعد از این آتش‌بس تقریباً یک‌ماهه هم ممکنه مجبور شیم یه‌سری کارای جمع‌وجور و پاکسازی تو ایران انجام بدیم. @DrTeL
+</div>
+
+## drtel — post 58545
+
+<div align="center">
+  <img src="telegram/content/drtel_58545_1778862702.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صفحه یوتیوب تتلو :
+امیرخان درحالی که فقط یک ماه به شروع جام جهانی مونده، از تو زندان استارت تمرین‌هاش رو زده و میخواد عضو یه تیم ملی بشه تا تو این مسابقات شرکت کنه.
+خودشم داخل قوطی رنگ و بطریِ وایتکس، گچ و سیمان ریخته و داره ازشون به عنوان دمبل استفاده می‌کنه.
+ایشون تو یه فضای 1*1 داره تمرین میکنه و واسه صبحونه، ناهار و شام فقط عدسی و آب‌میوه میخوره!
+@DrTeL
+</div>
+
+## drtel — post 58544
+
+<div align="center">
+  <a href="telegram/content/drtel_58544_1778862703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎉 بونوس ویژه ثبت‌نام – ۵۰۰٬۰۰۰ تومان رایگان
+
+
+💥 با ثبت‌نام در سایت، ۵۰۰٬۰۰۰ تومان بونوس رایگان دریافت کنید و شانس خود را امتحان کنید.
+
+
+🔥 چگونه کار می‌کند؟
+
+
+⬅️ ثبت‌نام کنید 
+
+⬅️بونوس ۵۰۰٬۰۰۰ تومانی دریافت کنید 
+
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+
+
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+
+⚽️ پوشش کامل مسابقات ورزشی 
+
+📊 پیش‌بینی با بهترین ضرایب 
+
+⚡️ تجربه سریع و حرفه‌ای
+
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+R25
+
+😀 کانال تلگرام: 
+
+🔴 @winro_io  
+
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+🔴 Winro.io
+
+سایت اصلی در روزهای آینده بازگشایی خواهد شد 
+✅
+</div>
+
+## drtel — post 58543
+
+<div align="center">
+  <a href="telegram/content/drtel_58543_1778862704.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ :
+اگه ایران واقعاً تضمین بده، 20 سال برنامه هسته‌ایش رو متوقف کنه می‌تونه کافی باشه، ولی این تضمین باید واقعی باشه، نه الکی و نمایشی؛
+
+بعد از این آتش‌بس تقریباً یک‌ماهه هم ممکنه مجبور شیم یه‌سری کارای جمع‌وجور و پاکسازی تو ایران انجام بدیم.
+
+@DrTeL
+</div>
+
+## drtel — post 58541
+
+<div align="center">
+  <a href="telegram/content/drtel_58541_1778862708.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس سنای آمریکا دیروز طرحی رو با عنوان "توقف جنگ علیه ایران" رای گیری کرد که این طرح با "212" رای موافق و "212" رای مخالف تصویب نشد.
+
++برای تصویب طرح، باید رای‌های موافق بیشتر از رای‌های مخالف میبود.
+
+@DrTeL
+</div>
+
+## drtel — post 58540
+
+<div align="center">
+  <img src="telegram/content/drtel_58540_1778862709.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 25 اردیبهشت، روز بزرگداشت فردوسی هم هست. @DrTeL
+</div>
+
+## drtel — post 58539
+
+<div align="center">
+  <img src="telegram/content/drtel_58539_1778862710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 25 اردیبهشت، روز بزرگداشت فردوسی هم هست.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 13:35
 ---
 
