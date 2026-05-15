@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 13:35
+---
+
+## SoftNetConnect — post 9455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🌏 سنتکام رسماً تأیید کرد که حمله به مدرسه میناب در روز اول جنگ ۴۰ روزه توسط یه بمب آمریکایی صورت گرفته
+💔
+</div>
+
+## SoftNetConnect — post 9454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🌏 سنتکام رسماً تأیید کرد که حمله به مدرسه میناب در روز اول جنگ ۴۰ روزه توسط یه بمب آمریکایی صورت گرفته
+💔
+</div>
+
+## SoftNetConnect — post 9453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9452
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9452_1778839553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فایننشال‌تایمز :
+اگر تا ماه آینده تنگهٔ هرمز باز نشود، به‌دلیل تخلیهٔ ذخایر استراتژیک شاهد موج گسترده‌تری از کمبودهای جهانی و افزایش قیمت‌ها در حوزهٔ انرژی خواهیم بود
+</div>
+
+## SoftNetConnect — post 9451
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین امکان برای از سرگیری حملات وجود داره دیگه بحث فقط زمانه
+
+
+🚨آمریکا دقیق طبق خبرهایی که اومده بعد سفر چین بلافاصله حملات شروع کنه
+
+
+🚨بعد رای گیری قطعنامه شورای حکام بر علیه جمهوری اسلامی که ائتلاف جهانی شکل میده که امکان زیاد چین وتوش نمیکنه و امکان وتو روسیه وجود داره
+
+
+🚨بعد جام جهانی به این دلیل که نکنه شبه نظامیان و حامیان جمهوری اسلامی در خارج از کشور در برگزاری جام جهانی مشکلاتی ایجاد کنن
+
+و یک چیزی بین همه مشترکه زمان مناسب برای ترور
+</div>
+
+## SoftNetConnect — post 9450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+✅به نقل از تهران تایمز و الجزیره آمریکا تمامی 14 پیشنهاد جمهوری اسلامی بطور رسمی رد کرد
+</div>
+
+## SoftNetConnect — post 9449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9448
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ در مصاحبه با شبکهٔ فاکس‌نیوز دربارهٔ اورانیوم غنی‌شدهٔ مدفون در سایت‌های هسته‌ای ایران: «به‌دست آوردن آن پروژهٔ بزرگی است، واقعاً پروژهٔ بزرگی است.» «اوایل به انجام این کار فکر می‌کردیم، اما زمان می‌برد؛ حدود یک هفته و نیم طول می‌کشید، و این مدت…
+</div>
+
+## SoftNetConnect — post 9447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هم‌اکنون حمله سنگین جمهوری اسلامی به مقر گروه های مخالف در عراق
+</div>
+
+## SoftNetConnect — post 9446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ در مصاحبه با شبکهٔ فاکس‌نیوز دربارهٔ اورانیوم غنی‌شدهٔ مدفون در سایت‌های هسته‌ای ایران: «به‌دست آوردن آن پروژهٔ بزرگی است، واقعاً پروژهٔ بزرگی است.» «اوایل به انجام این کار فکر می‌کردیم، اما زمان می‌برد؛ حدود یک هفته و نیم طول می‌کشید، و این مدت…
+</div>
+
+## SoftNetConnect — post 9444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ هزار باره تاکید می‌کنه جنگ سریع و بسیار سخت تر از قبل شکل میگیره و بعد لایه برداری سیاسی و فشار حداکثری دوباره بعد عملیات نظامی می‌ره پای مذاکره
+</div>
+
+## SoftNetConnect — post 9443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 13 اسرائیل:اسرائیل انتظار دارد حمله احتمالی آمریکا در ایران از فردا با بازگشت ترامپ از چین آغاز شود
+</div>
+
+## SoftNetConnect — post 9442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ، به شبکه فاکس نیوز: مذاکره با ایران درباره کنار گذاشتن غبار هسته‌ای به دلیل تضاد در تصمیمات ایران، رفت و برگشت دارد تأسیسات هسته‌ای ایران تحت نظارت مداوم ۹ دوربین، ۲۴ ساعته قرار دارند. هرگونه تحرک ایرانی در داخل تأسیسات هسته‌ای با واکنش مستقیم نظامی…
+</div>
+
+## SoftNetConnect — post 9441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: امیدوارم ایران تماشا کند. ما دقیقاً می‌دانیم چه چیزی را آماده کرده‌اند. می‌دانید، آن‌ها کمی استراحت داشتند، بنابراین سعی دارند چند چیز را با هم جمع کنند. آن‌ها موشک‌هایی را از زیر زمین بیرون آورده‌اند. همه این‌ها در یک روز از بین خواهند رفت. همه…
+</div>
+
+## SoftNetConnect — post 9440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفر ترامپ به چین به پایان رسید و به آمریکا برگشت.
+</div>
+
+## SoftNetConnect — post 9439
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9439_1778839553.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: امیدوارم ایران تماشا کند. ما دقیقاً می‌دانیم چه چیزی را آماده کرده‌اند. می‌دانید، آن‌ها کمی استراحت داشتند، بنابراین سعی دارند چند چیز را با هم جمع کنند. آن‌ها موشک‌هایی را از زیر زمین بیرون آورده‌اند. همه این‌ها در یک روز از بین خواهند رفت. همه کارهایی که در چهار هفته گذشته انجام داده‌اند، در یک روز از بین خواهد رفت.
+</div>
+
+## SoftNetConnect — post 9438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب ترامپ داره رسما میگه جنگ میشه
+</div>
+
+## drtel — post 58538
+
+<div align="center">
+  <img src="telegram/content/drtel_58538_1778839555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 15 May، روز جهانی خانواده‌ست
+👨‍👩‍👧‍👦
+
+@DrTeL
+</div>
+
+## drtel — post 58537
+
+<div align="center">
+  <a href="telegram/content/drtel_58537_1778839555.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تقابل آلیس رزنبلوم، مدل مشهور اونلی فنز با یه پسر ایرانی؛
+
+- آلیس رزنبلوم :
+من دارم ماهی نیم میلیون دلار درمیارم و نیازی ندارم که یه هندی رندوم بخواد تحقیرم کنه.
++ پسر ایرانی :
+اولا که من هندی نیستم ایرانی‌ام، بعدشم تو چطور می‌تونی اونلی فنز داشته باشی و کُص و کونت رو واسه 7 دلار به نمایش بذاری؟ ترکش کن.
+- آلیس رزنبلوم :
+من قرار نیست با حرف یه هندی اونلی فنز رو ترک کنم، من کلی پول دارم در میارم، تو چه ارزشی داری؟
++ پسر ایرانی :
+من صاحب یه کسب و کار کوچیکم ، ولی خب ارزشی که تو به این دنیا میدی چیه؟
+
+[در نهایت هم آلیس قهر کرد و رفت ، مردم هم تو کامنت‌ها حسابی طرف این پسر ایرانی رو گرفتن]
+
+@DrTeL
+</div>
+
+## drtel — post 58536
+
+<div align="center">
+  <a href="telegram/content/drtel_58536_1778839557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎉 بونوس ویژه ثبت‌نام – ۵۰۰٬۰۰۰ تومان رایگان
+
+
+💥 با ثبت‌نام در سایت، ۵۰۰٬۰۰۰ تومان بونوس رایگان دریافت کنید و شانس خود را امتحان کنید.
+
+
+🔥 چگونه کار می‌کند؟
+
+
+⬅️ ثبت‌نام کنید 
+
+⬅️بونوس ۵۰۰٬۰۰۰ تومانی دریافت کنید 
+
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+
+
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+
+⚽️ پوشش کامل مسابقات ورزشی 
+
+📊 پیش‌بینی با بهترین ضرایب 
+
+⚡️ تجربه سریع و حرفه‌ای
+
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+A24
+
+😀 کانال تلگرام: 
+
+🔴 @winro_io  
+
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+🔴 Winro.io
+
+سایت اصلی در روزهای آینده بازگشایی خواهد شد 
+✅
+</div>
+
+## drtel — post 58535
+
+<div align="center">
+  <img src="telegram/content/drtel_58535_1778839557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا ببین کی گفتم
+
+آمریکا امروز تایوان رو داد به چین، ایران رو ازش گرفت...
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 03:45
 ---
 
