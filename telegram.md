@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 03:12
+---
+
+## SoftNetConnect — post 9520
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندتا ip جدید برای شیروخورشید.
+2.23.168.144
+2.23.168.174
+2.23.168.250
+2.23.168.254
+2.23.168.213
+2.23.168.47
+2.23.168.7
+حتما حالت پرواز رو برید
+</div>
+
+## SoftNetConnect — post 9519
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9519_1778888557.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙برت بایر از فاکس: چین این هفته سه نفتکش پر از نفت ایران خارج کرد؟
+
+
+🇺🇸 ترامپ:
+چون ما اجازه دادیم این اتفاق بیفته
+فقط فکرشو بکنید ما ۱۹ سال در ویتنام بودیم! من این کار رو فقط، دو ماه و نیمه که انجام می‌دم.
+</div>
+
+## SoftNetConnect — post 9518
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9518_1778888559.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: بهشون گفتم اون مواد هسته‌ای رو جمع می‌کنیم می‌بریم، ایرانم گفت ببریدش، گفتن ما خودمون دیگه نمی‌تونیم جابه‌جاش کنیم، انقدر شدید زدید که دیگه نابود شده.
+
+
+🎙 مجری فاکس نیوز:
+خب اگه هدفتون فقط عقب انداختن برنامه هسته‌ای ایران بوده، خب همین الان انجامش دادید و کافیه دیگه؟
+
+
+🇺🇸ترامپ:
+آره، ولی از لحاظ تبلیغاتی و رسانه‌ای کافی نیست.
+</div>
+
+## SoftNetConnect — post 9517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : فکر کنید — ما ۱۹ سال در ویتنام بودیم! من این کار را برای دو، دو و نیم ماه انجام می‌دهم.
+</div>
+
+## SoftNetConnect — post 9516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ :
+فکر کنید — ما ۱۹ سال در ویتنام بودیم! من این کار را برای دو، دو و نیم ماه انجام می‌دهم.
+</div>
+
+## SoftNetConnect — post 9515
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9515_1778888561.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: ما ۹ تا دوربین مختلف اطراف سایت هسته‌ای ایران داریم. ما می‌تونیم اسم طرف رو هم بخونیم. مثلاً اگه اسمش محمد باشه، تقریباً می‌تونیم حدس بزنیم که حدود ۵۰٪ اطلاعاتش درست در میاد.
+</div>
+
+## SoftNetConnect — post 9514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آسمون ایران کلیر
+</div>
+
+## SoftNetConnect — post 9512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آسمون ایران کلیر
+</div>
+
+## SoftNetConnect — post 9511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ عجله داشت هیچ عکسی ازش بیرون نیومد و این عجیبه
+😐
+</div>
+
+## SoftNetConnect — post 9510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕خبرگزاری فارس: نمایندگان مجلس پیشنهاد افزایش ۵۰۰ هزار تا ۱ میلیون‌تومانی رقم کالابرگ را داده‌اند اما دولت گفته که تنها منابع افزایش ۲۵۰ هزارتومانی رقم کالابرگ را در اختیار دارد و سازمان برنامه هم اعلام کرده که پول نداریم!
+</div>
+
+## SoftNetConnect — post 9509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕خبرگزاری فارس:
+
+نمایندگان مجلس پیشنهاد افزایش ۵۰۰ هزار تا ۱ میلیون‌تومانی رقم کالابرگ را داده‌اند اما دولت گفته که تنها منابع افزایش ۲۵۰ هزارتومانی رقم کالابرگ را در اختیار دارد و سازمان برنامه هم اعلام کرده که پول نداریم!
+</div>
+
+## SoftNetConnect — post 9508
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9508_1778888564.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕 طبق گزارش روزنامه نیویورک تایمز، بعد از بازگشت ترامپ از چین، آمریکا و اسرائیل دارند برای احتمال از سرگیری حملات علیه ایران آماده می‌شوند؛
+
+اگر مذاکرات شکست بخورد، شاید حتی از هفته آینده حملات شروع شود.
+
+خلاصهٔ بخش‌ها:
+
+مشاوران ترامپ چند گزینهٔ نظامی آماده کرده‌اند:
+
+
+🚨حملات شدیدتر به اهداف نظامی و زیرساختی ایران
+
+
+🚨عملیات زمینی برای کنترل ذخایر اورانیوم غنی‌شده در سایت هسته‌ای اصفهان
+
+
+🚨احتمال تصرف جزیرهٔ خارک، که یکی از مهم‌ترین مراکز صادرات نفت ایران است
+گفته شده چند صد نیروی ویژهٔ آمریکا از ماه مارس به منطقه فرستاده شده‌اند برای آمادگی عملیات احتمالی علیه تأسیسات هسته‌ای زیرزمینی ایران.
+
+همچنین بیش از ۵۰ هزار نیروی آمریکایی، دو ناو هواپیمابر، ناوشکن‌ها و ده‌ها جنگنده در منطقه حضور دارند.
+
+ممکن است نیروهای بیشتری مثل تفنگداران دریایی و لشکر ۸۲ هوابرد هم برای عملیات احتمالی وارد شوند.
+</div>
+
+## SoftNetConnect — post 9507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## drtel — post 58558
+
+<div align="center">
+  <a href="telegram/content/drtel_58558_1778888565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️مجری :
+مردم آمریکا میخوان بدونن این قضیه ایران کی تموم میشه؟
+
+
+🇺🇸ترامپ:
+جنگ ویتنام 19 سال طول کشید، عراق حدود 10 سال، کره 7 سال… بقیه جنگ‌ها هم یکی 14 ساله بوده، یکی 12 ساله، یکی 9 ساله، ما تازه دو ماه و نیمه وارد این قضیه شدیم(جنگ با ایران).
+
+@DrTeL
+</div>
+
+## drtel — post 58557
+
+<div align="center">
+  <a href="telegram/content/drtel_58557_1778888567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+بهشون گفتم اون مواد هسته‌ای رو جمع می‌کنیم می‌بریم، ایرانم گفت ببریدش، گفتن ما خودمون دیگه نمی‌تونیم جابه‌جاش کنیم، انقدر شدید زدید که از کار افتاده.
+
+🎙️مجری فاکس نیوز:
+خب اگه هدفتون فقط عقب انداختن برنامه هسته‌ای ایران بوده، این که خوبه دیگه؟
+
+
+🇺🇸ترامپ:
+آره، ولی از لحاظ تبلیغاتی و رسانه‌ای کافی نیست.
+
+@DrTeL
+</div>
+
+## drtel — post 58555
+
+<div align="center">
+  <a href="telegram/content/drtel_58555_1778888570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز یکی تو فضای مجازی با هوش مصنوعی یه عکس از ترامپ و ایلان ماسک زیر پرچم داس و چکشِ حزب کمونیست ساخت؛
+
+بعد تو صداوسیما، خانعلی زاده (کارشناس روابط خارجی و همراه تیم مذاکره کننده تو سفر به پاکستان) خیلی جدی تحلیل کرد که این عکس خروجی سفر ترامپه و این یعنی آمریکا همیشه زیرخوابِ چینه...
+
+@DrTeL
+</div>
+
+## drtel — post 58554
+
+<div align="center">
+  <img src="telegram/content/drtel_58554_1778888571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گفته دو مقام خاورمیانه‌ای، آمریکا و اسرائیل دارن آماده‌سازی خیلی گسترده‌ای انجام می‌دن. (بزرگ‌ترین سطح از وقتی که آتش‌بس برقرار شده)
+این آماده‌سازی‌ها انقدر جدیه که ممکنه از هفته آینده دوباره حملات شروع بشه.
+
+@DrTeL | NYtimes
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 00:14
 ---
 
