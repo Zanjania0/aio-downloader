@@ -7,6 +7,286 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 00:14
+---
+
+## SoftNetConnect — post 9501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏
+🔴مایک والتز، سفیر آمریکا در سازمان ملل: یکی از نتایج بزرگ سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیره.
+</div>
+
+## SoftNetConnect — post 9500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک تایمز: آمریکا محمد بکر سعید داود السعدی، فرمانده ارشد شبه‌نظامی گردان‌های حزب‌الله درعراق، رو دستگیر کرد و علیه‌اش کیفرخواست صادر کرد.
+
+او متهم به طراحی حداقل 18 حمله در اروپا، آمریکا و کانادا از پایان فوریه شده؛ این حملات به عنوان انتقام از حملات آمریکا و اسرائیل علیه جمهوری اسلامی برنامه‌ریزی شده بودن.
+</div>
+
+## SoftNetConnect — post 9499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ به آمریکا رسید.
+</div>
+
+## SoftNetConnect — post 9498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانسل : 2.22.21.152 95.101.23.82 23.215.0.164 23.197.161.35 184.28.230.87 23.220.128.221 96.17.207.142 23.50.131.18 23.36.162.209 23.219.3.212 23.223.245.150 96.16.122.59 23.2.13.138 23.2.13.144 96.17.207.135 23.220.113.51 96.17.72.41 23.203.185.105 95.101.35.83…
+</div>
+
+## SoftNetConnect — post 9496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت خارجه آمریکا: ونزوئلا ۷۳ کیلوگرم اورانیوم غنی‌شده‌‌‌ش رو به آمریکا منتقل کرد.
+</div>
+
+## SoftNetConnect — post 9495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸پست جدید ترامپ تو تروث سوشال: ایران ایالت 243 آمریکاست😂
+</div>
+
+## SoftNetConnect — post 9492
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9492_1778877854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸پست جدید ترامپ تو تروث سوشال:
+
+ایران ایالت 243 آمریکاست😂
+</div>
+
+## SoftNetConnect — post 9491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحق کله زردی 😂
+</div>
+
+## SoftNetConnect — post 9490
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9490_1778877854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هست!
+
+واقعیت اینکه شاید الان بشه جلوی اتصال به اینترنت رو گرفت ولی تا چند سال آینده عملا غیرممکن میشه!
+</div>
+
+## SoftNetConnect — post 9489
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9488
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9488_1778877855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖 ارتش اسرائیل: عزالدین‌الحداد فرمانده گردان‌های القسام رو به همراه محافظینش ترور کردیم.
+</div>
+
+## SoftNetConnect — post 9487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖 ارتش اسرائیل: عزالدین‌الحداد فرمانده گردان‌های القسام رو به همراه محافظینش ترور کردیم.
+</div>
+
+## SoftNetConnect — post 9486
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9486_1778877856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖 ارتش اسرائیل: عزالدین‌الحداد فرمانده گردان‌های القسام رو به همراه محافظینش ترور کردیم.
+</div>
+
+## SoftNetConnect — post 9485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 13 اسرائیل: سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد
+</div>
+
+## SoftNetConnect — post 9484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان رادیو و تلویزیون اسرائیل: ارزیابی‌های اسرائیل بر این است که مجتبی خامنه‌ای با امتیازدهی مخالف است.
+
+اسرائیل برای ازسرگیری جنگ با ایران به حالت ‌آماده‌باش درآمده است. اتخاذ تصمیم به ازسرگیری جنگ در ایران همچنان به پرزیدنت ترامپ بستگی دارد.
+</div>
+
+## SoftNetConnect — post 9483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢سفارت آمریکا در اسرائیل در حال بررسی صدور دستورالعمل برای خروج فوری شهروندان آمریکایی از تل‌آویو است
+</div>
+
+## SoftNetConnect — post 9482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## drtel — post 58553
+
+<div align="center">
+  <img src="telegram/content/drtel_58553_1778877856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عکس وایرال شده از دختربچه‌ای که تو تجمعات حکومت، پرچم سپاه رو به این صورت به دست گرفت:
+
+
+
+
+طرفداران حکومت معتقدن بااینکه رسانه‌های معاند میخواستن سپاه رو تو چشم بچه‌ها خراب کنن ولی قضیه برعکس شده و الان دیگه سپاه🎀 حتی تو دل بچه‌ها جا باز کرده.
+
+@DrTeL
+</div>
+
+## drtel — post 58551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایلان ماسک : اینستاگرام واسه دختراست؛
+
+
+بعضی وقت‌ها یسری مرد بالغ آیدی اینستاگرام‌شون رو واسه من می‌فرستن و من می‌پرسم: آیا داری تغییر جنسیت میدی؟
+
+@DrTeL
+</div>
+
+## drtel — post 58550
+
+<div align="center">
+  <a href="telegram/content/drtel_58550_1778877857.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎉 بونوس ویژه ثبت‌نام – ۵۰۰٬۰۰۰ تومان رایگان
+
+
+💥 با ثبت‌نام در سایت، ۵۰۰٬۰۰۰ تومان بونوس رایگان دریافت کنید و شانس خود را امتحان کنید.
+
+
+🔥 چگونه کار می‌کند؟
+
+
+⬅️ ثبت‌نام کنید 
+
+⬅️بونوس ۵۰۰٬۰۰۰ تومانی دریافت کنید 
+
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+
+
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+
+⚽️ پوشش کامل مسابقات ورزشی 
+
+📊 پیش‌بینی با بهترین ضرایب 
+
+⚡️ تجربه سریع و حرفه‌ای
+
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+G25
+
+😀 کانال تلگرام: 
+
+🔴 @winro_io  
+
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+🔴 Winro.io
+
+سایت اصلی در روزهای آینده بازگشایی خواهد شد 
+✅
+</div>
+
+## drtel — post 58549
+
+<div align="center">
+  <a href="telegram/content/drtel_58549_1778877857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضا پهلوی :
+جمهوری اسلامی الان برای اینکه سقوطش عقب بیفته، داره فشار و سرکوب مردم رو بیشتر میکنه؛
+واسه همین یه تیم حقوقی گذاشتم بررسی کنن اونایی که با سیستم سرکوب همکاری میکنن، بعدا چه بلایی سرشون میاد. نتیجه‌ش این شده که این کارا فقط یه همکاری ساده نیست و میتونه به‌عنوان کمک به جنایت علیه بشریت حساب بشه.
+یعنی هر کسی که آگاهانه بره سمت خبرچینی، کمک تو ایست بازرسی، سرکوب مردم یا حتی خرید و فروش اموال مصادره‌شده، باید بدونه بعدا ممکنه محاکمه بشه و جواب پس بده. حتی ممکنه از اموالشون برای جبران خسارت مردم استفاده بشه. به همه اونایی هم که الان دارن با سیستم همکاری میکنن هشدار میدم قبل از هر کاری یه فکر به آینده خودشون و خانوادشون بکنن؛ چون این وضعیت همیشگی نیست و یه روزی میرسه که همه‌چیز روشن میشه و هیچ‌کس نمیتونه از جواب پس دادن فرار کنه.
+هدف اینه که ایران تبدیل به یه کشور آزاد بشه که توش حق مردم رعایت بشه و اوضاع کشور درست بشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58548
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من براش نامحدود بودم ولی اون گیگی دوست داشت…
+</div>
+
+## drtel — post 58547
+
+<div align="center">
+  <a href="telegram/content/drtel_58547_1778877858.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام رسماً تأیید کرد که حمله به مدرسه میناب توسط آمریکا صورت گرفته.
+
+
+❌ این خبر که تو فضای مجازی داره دست به دست میشه، فیکه؛ سنتکام تأیید نکرده و ترامپ هم امروز گفت که هنوز داریم بررسی می‌کنیم.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 20:01
 ---
 
