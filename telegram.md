@@ -7,6 +7,293 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 15:03
+---
+
+## SoftNetConnect — post 9539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟪 بعضی از دوستان خبر هایی در مورد اخطار از طرف واجا به دلیل وصل شدن به شیر و خورشید داشتن
+
+
+اصلا معلوم نیست این برنامه شیر و خورشید برای چه کسی هست !
+
+
+لطفا مواظب باشید و اگر کار ضروری ای ندارید بهش وصل نشید
+
+البته که کلا قطع هست و بعضی مواقع به صورت شانسی وصل میشن
+
+
+من اخطار خودمو دادم مثل اخطار چند هفته پیش در مورد اسپوف.
+</div>
+
+## SoftNetConnect — post 9538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕سی‌ان‌ان: مقام‌های آمریکایی منتظر بودن ببینن در سفر ترامپ به چین پیشرفتی در مذاکرات مربوط به ایران شکل میگیره یا خیر، که بعد از سفر بنظر میرسه هیچ پیشرفت قابل توجهی صورت نگرفته.
+</div>
+
+## SoftNetConnect — post 9537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕نیویورک تایمز:
+نیروهای نظامی آمریکا در حال آماده‌سازی برای دور دیگری از حملات هستن؛ این بار با شدت بیشتر. این حملات ممکنه از روز دوشنبه آغاز شود. اهداف نظامی بیشتری از ایران در نظر گرفته شده که شامل زیرساخت‌ها هم میشه.
+</div>
+
+## SoftNetConnect — post 9536
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕روزنامه معاریو: دولت ترامپ آماده چراغ سبز به اقدام نظامی علیه جمهوری اسلامیه.
+</div>
+
+## SoftNetConnect — post 9535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کل خبرگزاری ها معتبر دور دوم حملات قطعی میدونن
+</div>
+
+## SoftNetConnect — post 9534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کل خبرگزاری ها معتبر دور دوم حملات قطعی میدونن
+</div>
+
+## SoftNetConnect — post 9533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+✅ دور دوم حملات شکل خواهد گرفت
+</div>
+
+## SoftNetConnect — post 9532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢شبکه فاکس نیوز: ارتش آمریکا درحال آماده شدن برای دور جدیدی از درگیری های نظامی در ایران است
+</div>
+
+## SoftNetConnect — post 9531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایال زمیر، رئیس ستاد کل نیروهای مسلح اسرائیل اعلام کرد کشته‌شدن عزالدین الحداد، فرمانده‌ شاخه ‌نظامی «حماس» یک گام مهم و موفقیتی بزرگ در عرصه عملیاتی است.
+او افزود اسرائیل «با جدیت» به‌ تعقیب و هدف قرار دادن سایر رهبران و فرماندهان حماس ادامه خواهد داد.
+</div>
+
+## SoftNetConnect — post 9528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اپلیکیشن بی نظیر بله اختلال خورد
+</div>
+
+## SoftNetConnect — post 9527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهاجرانی، سخنگوی دولت : نگاه دولت به اینترنت دسترسی برابر برای همه شهروندان است!
+</div>
+
+## SoftNetConnect — post 9526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌏 سنتکام:تمام کشتی ها قایق های ایران رو زیر نظر داریم
+</div>
+
+## SoftNetConnect — post 9525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا جدی همه میدونن جنگ حتمی ، مراقب خودتون باشید امیدوارم هرچی صلاح مردمه رخ بده
+
+مواد غذایی کافی نه اینکه احتکار کنید ، چراغ قوه ، پاور بانک داشته باشید که امیدوارم این دوره هم بگذره
+</div>
+
+## SoftNetConnect — post 9524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جسی واترز، مجری فاکس نیوز: ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایرانه.
+</div>
+
+## SoftNetConnect — post 9523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 کرملین امروز اعلام کرد که ولادیمیر پوتین، رئیس‌جمهور روسیه ۱۹ مه (۲۹ اردیبهشت) برای یک سفر دو روزه به چین خواهد رفت. این سفر در پی سفر دونالد ترامپ، رئیس‌جمهور آمریکا به پکن انجام می‌شود.
+</div>
+
+## SoftNetConnect — post 9522
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9522_1778931197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ اعلام کرد نیروهای آمریکا و نیجریه نفر دوم داعش تو سطح جهانو کشتن
+امشب، به دستور من، نیروهای شجاع آمریکایی و نیروهای مسلح نیجریه، یک مأموریت بسیار پیچیده و با برنامه‌ریزی دقیق رو بدون نقص اجرا کردن تا فعال‌ترین تروریست جهان رو از میدان نبرد حذف کنن
+ابوبلال المنوکی، نفر دوم داعش در سطح جهانی، فکر می‌کرد میتونه تو آفریقا پنهان بشه، اما نمی‌دونست که ما منابعی داشتیم که ما رو از کارهایی که انجام می‌داد مطلع نگه می‌داشتن.
+با حذف اون، عملیات جهانی داعش به‌شدت تضعیف شده.
+
+از دولت نیجریه بابت همکاری در این عملیات تشکر می‌کنم. خدا آمریکا را حفظ کند!
+</div>
+
+## SoftNetConnect — post 9521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ، رییس‌جمهوری آمریکا، طی ۲۴ ساعت آینده تیم مشاوران نزدیک خود را تشکیل دهد تا درباره ایران تصمیم نهایی بگیرد. برآوردها در اسرائیل حاکی است تصمیم درباره اقدام نظامی ممکن است بسیار به‌زودی اتخاذ شود.
+
+برنامه تلویزیونی «اولپن شیشی» به نقل از یک مقام ارشد اسرائیلی گزارش داد که «ازسرگیری درگیری نزدیک است» و اسرائیل خود را برای احتمال «چند روز تا چند هفته جنگ» آماده می‌کند.
+</div>
+
+## drtel — post 58571
+
+<div align="center">
+  <a href="telegram/content/drtel_58571_1778931198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما از دیشبه شروع کرده داره آموزش استفاده از کلاشینکف رو به مردم میده و حتی یکی از مجری‌ها، وسط استدیو شلیک هم کرد!
+
+
+
+خیلی‌ها میگن به احتمال زیاد این‌ها متوجه نزدیکی جنگ بعدی شدن؛ جنگی که گویا تقابل زمینی هم قراره داشته باشه....
+
+@DrTeL
+</div>
+
+## drtel — post 58570
+
+<div align="center">
+  <img src="telegram/content/drtel_58570_1778931200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌ ۹۰٪ کاربرا هنوز اشتباه وارد سایت میشن!
+تو جزو اونایی یا میخوای حرفه‌ای عمل کنی؟
+
+
+✅ ورود سریع به وینکوبت فقط با یک کلیک ساده:
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌   نه لینک اضافی
+
+📌   نه سردرگمی
+
+📌   نه اتلاف وقت
+
+📌   مستقیم، سریع، بدون دردسر وارد شو!
+
+⏳   دیر بجنبی، از بقیه عقب می‌مونی.
+
+
+🔗 الان وقتشه مسیر درستو انتخاب کنی:
+
+
+🤖 @Wincobet_bot
+
+
+📌برای تحلیل بازی‌ها و آخرین اخبار سایت جوین بدید:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58569
+
+<div align="center">
+  <img src="telegram/content/drtel_58569_1778931200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قیمت Bitcoin
+🪙 از دیشب تا الان وارد فاز ریزشی شده؛ آخرین باری هم که بازار کریپتو این‌طوری سنگین نزولی شده بود، چند روز بعدش آمریکا حمله کرد. +بازار انگار بعضی وقتا زودتر از خبرها واکنش نشون میده… @DrTeL
+</div>
+
+## drtel — post 58568
+
+<div align="center">
+  <img src="telegram/content/drtel_58568_1778931201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قیمت Bitcoin
+🪙 از دیشب تا الان وارد فاز ریزشی شده؛
+
+آخرین باری هم که بازار کریپتو این‌طوری سنگین نزولی شده بود، چند روز بعدش آمریکا حمله کرد.
+
++بازار انگار بعضی وقتا زودتر از خبرها واکنش نشون میده…
+
+@DrTeL
+</div>
+
+## drtel — post 58567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در مجموع امروز روزِ پیرمردای بچه بازه
+</div>
+
+## drtel — post 58566
+
+<div align="center">
+  <img src="telegram/content/drtel_58566_1778931201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 برخلاف چیزی که خیلیا فکر می‌کنن، امروز 16 May «روز جهانی پسر بچه‌ها»ست.
+
++ این مناسبت بیشتر برای توجه به مشکلات، آینده و سلامت کودک‌ها و نوجوان‌های پسره.
+
+@DrTeL | International Day of the Boy Child
+</div>
+
+## drtel — post 58565
+
+<div align="center">
+  <img src="telegram/content/drtel_58565_1778931202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 16 May، روز قدردانی از گی‌های
+🏳️‍🌈 سن‌بالا و کاربلده.
+
+@DrTeL | International day
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 11:02
 ---
 
