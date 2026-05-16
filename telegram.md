@@ -7,6 +7,324 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:37
+---
+
+## SoftNetConnect — post 9583
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9583_1778954843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ویدیوی ساخته شده با هوش مصنوعی از شلیک به پهپاد جمهوری اسلامی که ترامپ بدون هیچ توضیحی پست کرده😂
+</div>
+
+## SoftNetConnect — post 9582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شبکه 13 اسرائیل: هم اکنون ارزیابی‌ها در اسرائیل بر این است که جنگ با ایران در روز های آینده از سر گرفته خواهد شد.
+</div>
+
+## SoftNetConnect — post 9581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: اگه حکومت ایران به توافق نرسه، دوران بسیار بدی در انتظارشان خواهد بود.
+</div>
+
+## SoftNetConnect — post 9580
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9580_1778954844.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسامی ۶۴ نفر خواننده ، رپر ، بلاگر و یوتیوبر در حال حاضر پخش شده است که در لیست توقیف اموال قرار گرفتند.
+</div>
+
+## SoftNetConnect — post 9578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ نکته مهم:
+
+پایین قسمت Option یه گزینه هست به نام More Option اونو بزنید
+
+بیاید پایین صفحه یه گزینه هست به نام App appearance اونو بزنید
+
+یه صفحه باز میشه که اونجا میتونید نام و لوگو برنامه شیروخورشید رو عوض کنید مثلا به شکل ماشین حساب دربیاد
+</div>
+
+## SoftNetConnect — post 9577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانسل :
+
+185.200.232.43  
+185.200.232.40
+167.82.48.223
+151.101.128.223
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+</div>
+
+## SoftNetConnect — post 9575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+2.23.168.47
+2.23.170.80
+2.23.168.144
+2.23.168.213
+2.23.168.174
+2.23.168.96
+2.23.168.254 
+
+همراه اول متصل
+</div>
+
+## SoftNetConnect — post 9574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕 تلگراف: مقامات ارشد دولت ترامپ از امارات خواستن به شکل جدی‌تری وارد جنگ با ایران شه.
+</div>
+
+## SoftNetConnect — post 9573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕 تلگراف: مقامات ارشد دولت ترامپ از امارات خواستن به شکل جدی‌تری وارد جنگ با ایران شه.
+</div>
+
+## SoftNetConnect — post 9572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸گسیل ترابری نظامی آمریکا به منطقه طی ساعات اخیر افزایشی بوده اما نکته مهم خاموش کردن سامانه و عدم ذکر مقصد در پروازهای اخیر است
+
+بنظر میاد سنتکام به نقطه ای رسیده نمیخاد کسی بفهمه چی تو اسمونه یا کجاست
+</div>
+
+## SoftNetConnect — post 9570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 9569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣️کانفیگ ها ضریب ندارند.
+
+🗣️محدودیت کاربر و زمان ندارند.
+
+🗣️برای تمامی اپلیکیشن های خارجی ساخته شده.
+
+🗣️برنامه های نپستر و ویتوری.
+
+🗣️تمامی کانفیگ ها ساب دارند.
+
+💵پرداخت ارزی و ریالی (ساعت یازده پرداخت ریالی بسته میشود)
+
+🆕گیگی 190 هزار تومان
+
+
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 9568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕العربیه: وزیر کشور پاکستان با هدف رسیدن به چارچوب یک توافق به تهران سفر کرده.
+</div>
+
+## SoftNetConnect — post 9567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨طبق رسانه های عربی در حال حاضر در منطقه تحرکات بزرگ نظامی در حال رخ دادنه
+</div>
+
+## SoftNetConnect — post 9566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕رویترز: به گفته دو منبع آگاه، در داخل کاخ سفید هیچ تلاشی برای متقاعد کردن ترامپ به خویشتنداری بیشتر در پیام‌هایش درباره ایران صورت نگرفته است
+</div>
+
+## SoftNetConnect — post 9565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟪 بعضی از دوستان خبر هایی در مورد اخطار از طرف واجا به دلیل وصل شدن به شیر و خورشید داشتن اصلا معلوم نیست این برنامه شیر و خورشید برای چه کسی هست ! لطفا مواظب باشید و اگر کار ضروری ای ندارید بهش وصل نشید البته که کلا قطع هست و بعضی مواقع به صورت شانسی…
+</div>
+
+## SoftNetConnect — post 9564
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 کرملین : پوتین با رئیس امارات متحده عربی درباره ایران گفتگو کرد
+</div>
+
+## drtel — post 58593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+حکومت ایران بهتره به توافق برسه؛
+اگر این کار رو نکنن، دوران بسیار بدی در انتظارشون خواهد بود.
+
+@DrTeL
+</div>
+
+## drtel — post 58591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در اقدامی کاملا عادی تو اپلیکیشن ترب، محصولاتی با عنوانِ موش بی دندون (همون دول موشیِ خودمون) در ابعاد و رنگ های مختلف موجود شد.
+
+@DrTeL
+</div>
+
+## drtel — post 58590
+
+<div align="center">
+  <a href="telegram/content/drtel_58590_1778954845.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلم «تهران کنارت» که بخاطر حجاب دو سال توقیف بود، الان آزاد و اکران شده؛
+
+
+
+تو تیزر رسمی فیلم، "سوگند" خواننده‌ی زنِ خارج‌نشین داره می‌خونه که حسابی جنجال به پا کرده...
+
+
+@DrTeL
+</div>
+
+## drtel — post 58589
+
+<div align="center">
+  <img src="telegram/content/drtel_58589_1778954847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟡 Al Nassr - 
+🔵 Gambaosaka
+
+
+🔵 فینال لیگ‌قهرمانان آسیا
+
+⏰ شنبه ساعت ۲۱:۱۵
+
+🏟 استادیوم الاول پارک
+
+
+⚽️ النصر حالا با رهبری رونالدو؛ در دو بازی باقی مانده از فصل مقابل اوزاکا و داماک، فرصت دبل در قهرمانی را دارد تا سی‌آرسون، اولین قهرمانی‌های‌ خودش در تیم عربی را تجربه کند. تیم خسوس، آمار کاملاً بهتری دارد. النصر در ۱۰ بازی، ۳۳ گل به‌ثمر رسانده و سرجمع ۳ گل خورده. این آمار برای اوزاکا در ۱۲ بازی (با احتساب پلی‌آف)، ۲۵ گل زده و هفت گل هم خورده. تیم ژاپنی با فرم ضعیف‌تری به‌میدان می‌آید. اوزاکا در پنج بازی اخیرش، متحمل سه شکست شده و این آمار برای النصر، در پنج بازی اخیرش، یک شکست و یک تساوی بوده.
+
+
+📌در ربات وینکوبت ثبت‌نام کن و با شارژ از طریق کریپتو ۵٪ شارژ بیشتری رو دریافت کنید، همین حالا شروع کن: 
+👇
+
+
+🟣 [ برای ورود به ربات کلیک کنید: ]
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال سایت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 6 نفر از حامیانِ فلسطین از برج ایفل بالارفتن و پرچم فلسطین
+🇵🇸 رو از طبقه اول آویزن کردن.
+
++پلیس فرانسه هم هر 6 نفر رو به جرم ورود غیرمجاز دستگیر کرد.
+
+@DrTeL | aa
+</div>
+
+## drtel — post 58587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش من از بی پولی لباس ندارم ولی الان بحث بحث وطنه
+</div>
+
+## drtel — post 58585
+
+<div align="center">
+  <a href="telegram/content/drtel_58585_1778954848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاول دروف(مالک تلگرام
+📱) : دوبی
+🇦🇪 دوباره پر شده از ترافیک و شلوغی؛ دلم واسه موشک‌پرونیای ایران تنگ شده بود، حداقل صیک یه مشت آدم زودجَو و جوگیر رو از شهر زده بود. پدافند اماراتم تو اون شرایط خیلی خوب عمل کرد، ما با مالیات صفر، امنیتی داریم که از اروپاییایی…
+</div>
+
+## drtel — post 58584
+
+<div align="center">
+  <a href="telegram/content/drtel_58584_1778954849.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاول دروف(مالک تلگرام
+📱) :
+دوبی
+🇦🇪 دوباره پر شده از ترافیک و شلوغی؛
+دلم واسه موشک‌پرونیای ایران تنگ شده بود، حداقل صیک یه مشت آدم زودجَو و جوگیر رو از شهر زده بود.
+پدافند اماراتم تو اون شرایط خیلی خوب عمل کرد، ما با مالیات صفر، امنیتی داریم که از اروپاییایی که نصف حقوقشونو مالیات میدن بهتره.
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:16
 ---
 
