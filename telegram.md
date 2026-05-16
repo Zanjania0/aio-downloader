@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 11:02
+---
+
+## drtel — post 58564
+
+<div align="center">
+  <a href="telegram/content/drtel_58564_1778916749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته خبرگزاری‌های معتبر آمریکایی
+🇺🇸 :
+
+ترامپ و ارتش آمریکا دارن خودشونو برای دور جدیدی از حملات علیه ایران آماده میکنن؛
+این‌بار قراره تهاجمی تر از قبل حمله کنن و به صورت زمینی وارد بشن تاگرد و غبار هسته‌ای رو جمع کنن.
+احتمالا حملات از دوشنبه شروع میشه و تواین حملات قراره زیرساخت‌ها هم مورد هدف قرار بگیرن.
+
+@DrTeL | The New York Times | Fox News
+</div>
+
+## drtel — post 58561
+
+<div align="center">
+  <a href="telegram/content/drtel_58561_1778916752.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جدیدا تو اینستاگرام
+📱 یه چالشی مد شده که دخترا جلوی آینه یه ویدیو از خودشون میگیرن و میگن؛
+
+«پسری که از اول جنگ تاحالا آنلاین نشده تا قیامت کنسله»
+
+
+حالا دلیلیش چیه؟
+میگن کسی که واسه خودش کانفیگ نمیخره، چطور میخواد کاری کنه تو رابطه باهاش خوش بگذره…
+
+
+@DrTeL
+</div>
+
+## drtel — post 58560
+
+<div align="center">
+  <img src="telegram/content/drtel_58560_1778916753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇 g25🅰
+
+✈️https://t.me/+RvVnWMHCqUc4YzFk
+</div>
+
+## drtel — post 58559
+
+<div align="center">
+  <a href="telegram/content/drtel_58559_1778916754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه چیزی تو اسمونه شبیه ستاره ولی داره ضربدری می‌چرخه خیلییی بالاس صدا هواپیما هم میدم کمی ریدم👍
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 03:12
 ---
 
