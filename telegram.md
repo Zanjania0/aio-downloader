@@ -7,6 +7,244 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 03:07
+---
+
+## SoftNetConnect — post 9615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨تحرکات نظامی سنگین در خاورمیانه، هم اکنون تعداد زیادی هواپیمای ترابری نظامی آمریکایی در حال ترک خاورمیانه به سمت اروپا می‌باشند.
+</div>
+
+## SoftNetConnect — post 9614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨تحرکات نظامی سنگین در خاورمیانه،
+
+هم اکنون تعداد زیادی هواپیمای ترابری نظامی آمریکایی در حال ترک خاورمیانه به سمت اروپا می‌باشند.
+</div>
+
+## SoftNetConnect — post 9613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 میخائیل اولیانوف، نماینده روسیه :
+کارشناسا میگن آمریکا و اسرائیل ممکنه به‌زودی دوباره به ایران حمله کنن
+</div>
+
+## SoftNetConnect — post 9612
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9612_1778974672.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 خبرگزاری فارس: شهر بیت‌شمش واقع در غرب بیت‌المقدس که محل وقوع انفجاری مرموز است محل استقرار کلاهک‌های هسته‌ای اسرائیل است.
+</div>
+
+## SoftNetConnect — post 9611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن این انفجار از قبل برنامه ریزی شده بوده
+</div>
+
+## SoftNetConnect — post 9610
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9610_1778974672.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ویدئویی از انفجار تو بیت شمش اسرائیل.
+</div>
+
+## SoftNetConnect — post 9609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالب شد
+</div>
+
+## SoftNetConnect — post 9608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راست گرایان مخالف سر سخت جمهوری اسلامی و هم پیمان ترامپ هستند
+
+تفکر راست گرایان این که مخالف سر سخت اسلام و مهاجرت غیرقانونیه
+</div>
+
+## SoftNetConnect — post 9607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕دیلی میل بریتانیا: کیر استارمر به نزدیکانش گفته است که قصد دارد از سمت نخست‌وزیری کناره‌گیری کند و جدول زمانی منظمی برای ترک این سمت تعیین کند
+</div>
+
+## drtel — post 58611
+
+<div align="center">
+  <a href="telegram/content/drtel_58611_1778974673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این روزها که نتِ مردم ایران قطعه، کل اینستاگرام افتاده دست یه پسربچه از اتیوپی🇪🇹!
+
+یه جوری کسشرای این بچه تو اینستاگرام داره ویو میخوره که صفحه رسمی اینستاگرام اومده واسش کامنت گذاشته که توروخدا دایرکتت رو چک کن کار واجب دارم؛
+
+اینم زاکربرگ رو به تخمش گرفته و جوابش رو نداده...
+
+@DrTeL
+</div>
+
+## drtel — post 58610
+
+<div align="center">
+  <img src="telegram/content/drtel_58610_1778974674.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 هنوز داری دنبال لینک می‌گردی؟
+
+
+✅ حرفه‌ای‌ها مستقیم وارد میشن!
+با ربات وینکوبت، ورود به سایت فقط چند ثانیه زمان می‌بره: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+⚡ بدون فیلتر و دردسر
+⚡ بدون لینک‌های الکی
+⚡ فقط یه کلیک تا ورود
+
+🎁 اگه سریع و راحت میخوای وارد شی، این همون چیزیه که دنبالش بودی!
+
+
+🤖 @Wincobet_bot
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال وینکوبت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیا از من کشاورز بخر فقط ۳۵۰ اقاااااااا
+</div>
+
+## drtel — post 58608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من الان خودم قطعم ولی بحث بحث وطنه
+</div>
+
+## drtel — post 58607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصلا خیلی غلط املایی و نوشتاری داره من با کون بپرم رو کیبورد بهتر از این تایپ میکنم احتمال زیاد فیکه
+</div>
+
+## drtel — post 58606
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاتی که تو بله و روبیکا درحال وایرال شدنه؛ گفته میشه حکومت برای بعضی از افرادی که نرم‌افزار «شیر و خورشید» رو روی گوشیشون نصب کردن(اپی که این روزها بخشی از مردم رو به اینترنت بین‌الملل وصل کرده) پیامک‌های تهدیدآمیز فرستاده و ازشون خواسته این برنامه رو حذف…
+</div>
+
+## drtel — post 58605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاتی که تو بله و روبیکا درحال وایرال شدنه؛ گفته میشه حکومت برای بعضی از افرادی که نرم‌افزار «شیر و خورشید» رو روی گوشیشون نصب کردن(اپی که این روزها بخشی از مردم رو به اینترنت بین‌الملل وصل کرده) پیامک‌های تهدیدآمیز فرستاده و ازشون خواسته این برنامه رو حذف…
+</div>
+
+## drtel — post 58604
+
+<div align="center">
+  <img src="telegram/content/drtel_58604_1778974675.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاتی که تو بله و روبیکا درحال وایرال شدنه؛
+
+گفته میشه حکومت برای بعضی از افرادی که نرم‌افزار «شیر و خورشید» رو روی گوشیشون نصب کردن(اپی که این روزها بخشی از مردم رو به اینترنت بین‌الملل وصل کرده) پیامک‌های تهدیدآمیز فرستاده و ازشون خواسته این برنامه رو حذف کن :
+
+@DrTeL
+</div>
+
+## drtel — post 58603
+
+<div align="center">
+  <a href="telegram/content/drtel_58603_1778974675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی میبینم رفیقم به «بله» عادت کرده و پروفایل و استوری میزاره و همش برخطه :
+
+@DrTeL
+</div>
+
+## drtel — post 58602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناموسن ما خیلی پوستمون کلفته
+وگرنه این زندگی رو اگه جلوی سگم بندازی نمیکنه
+</div>
+
+## drtel — post 58600
+
+<div align="center">
+  <a href="telegram/content/drtel_58600_1778974676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙مجری : خواهش می‌کنم سلام من رو به مجتبی خامنه‌ای برسونید.
+
+
+🇮🇷 حدادعادل: والا منم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونم.
+
+@DrTeL
+</div>
+
+## drtel — post 58599
+
+<div align="center">
+  <img src="telegram/content/drtel_58599_1778974677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت کاخ سفید با انتشار عکسی از ترامپ تو اتاق جنگ نوشت:
+
+شوخی‌ای در کار نیست.
+
++متن داخل تصویر (نقل قول ترامپ):
+اگر به آمریکایی‌ها ضربه بزنید یا برنامه‌ای برای این کار داشته باشید، ما شمارو پیدا میکنیم و میکُشیم.
+‌
+@DrTeL
+</div>
+
+## drtel — post 58598
+
+<div align="center">
+  <img src="telegram/content/drtel_58598_1778974678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری CNN :
+دونالد ترامپ بدون رسیدن به هیچ پیشرفت یا توافق مهمی درباره ایران از چین
+🇨🇳برگشته و از متوقف موندن مذاکرات حسابی کلش کیری شده؛
+
+با اینکه ترامپ هنوز میگه راه‌حل دیپلماتیک رو ترجیح میده، اما الان داره بررسی می‌کنه که آیا برای تحت فشار قرار دادن ایران، حملات نظامی بیشتری لازمه یا نه.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 00:06
 ---
 
