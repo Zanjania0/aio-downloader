@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 11:34
+---
+
+## SoftNetConnect — post 9633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت جدید اتاق جنگ اسرائیل: ⌛ قبلانم یه توییت اینجوری زد و بعدش آمریکا و اسرائیل حمله کردن بد جوری بوی حمله میاد
+</div>
+
+## SoftNetConnect — post 9632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 مبنای برگزاری کنکور مصوبات قانونی جاری است هیچ گونه تغییری در کنکور امسال نداریم
+
+اطلاعیه مهم ستاد تعلیم و تربیت شورای عالی انقلاب فرهنگی در خصوص مصوبه کنکور:
+
+ستاد تعلیم و تربیت دبیرخانه شورای عالی انقلاب فرهنگی با صدور اطلاعیه‌ای، به تشریح سیر تکوینی مصوبه سنجش و پذیرش در سه دولت متوالی، بر مرجعیت قانونی شورا بر اساس دستور صریح رهبر شهید انقلاب تأکید کرد.
+</div>
+
+## SoftNetConnect — post 9631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕روزنامه کیهان:
+آماده بشید که احتمالا آمریکا و اسرائیل به زودی حمله می‌کنند
+</div>
+
+## SoftNetConnect — post 9630
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9630_1779005044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 سی‌ان‌ان: ایران به کابل‌های اینترنتی تنگه هرمز چشم دوخته است!
+</div>
+
+## SoftNetConnect — post 9629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمید رسایی: تمام تلاشم رو می‌کنم تا اینترنت بین‌المللی برای مردم وصل نشه.
+</div>
+
+## SoftNetConnect — post 9628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های فرانسوی گزارش دادن که گفته میشه امانوئل مکرون، رئیس‌جمهور فرانسه، چند ماه با گلشیفته فراهانی، بازیگر ایرانی-فرانسوی، یه رابطه «افلاطونی» داشته و همین موضوع حسابی تو فرانسه سر و صدا کرده. طبق این گزارش‌ها، بین این دوتا پیام‌ها و ارتباط شخصی رد و…
+</div>
+
+## SoftNetConnect — post 9627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این یاشار اتاق جنگ چقدر کصخله ، جدی جدی فک کرده مثل اتاق جنگ اسرائیله؟ فیک نیوزی بیش نیست
+</div>
+
+## SoftNetConnect — post 9626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴معاون وزیر خارجه روسیه دقایقی پیش از قریب‌الوقوع بودن حمله آمریکا و اسرائیل به ایران خبر داد.
+</div>
+
+## SoftNetConnect — post 9625
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9625_1779005044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام معنادار تهران به پکن؛ ایران یک کشتی سلاح چینی را توقیف کرد!
+
+
+🆕وال‌استریت‌ژورنال: «ایران کشتی چینی هویی چوان را در نزدیکی هرمز توقیف کرده.
+
+این شناور به‌عنوان انبار سلاح برای نیروهای امنیتی خصوصی استفاده می‌شد.
+
+این نخستین توقیف شناخته‌شده یک کشتی امنیتی خصوصی در بحران فعلی هرمز است»
+
+ایران با این کار به دوستانش حتی چین پیامی ارسال کرد که اجازه نمی‌دهد هیچ نیروی امنیتی خارجی (حتی متحد) در آب‌های تحت کنترل خود فعال باشد و حمایت‌هایش از چین محدودیت دارد.
+</div>
+
+## SoftNetConnect — post 9624
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9624_1779005045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت جدید اتاق جنگ اسرائیل:
+
+⌛
+
+قبلانم یه توییت اینجوری زد و بعدش آمریکا و اسرائیل حمله کردن بد جوری بوی حمله میاد
+</div>
+
+## SoftNetConnect — post 9623
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9623_1779005045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پروازهای ترابری آمریکا تو منطقه طی ۲۴ ساعت اخیر بسیار افزایش پیدا کرده.
+</div>
+
+## SoftNetConnect — post 9622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پروازهای ترابری آمریکا تو منطقه طی ۲۴ ساعت اخیر بسیار افزایش پیدا کرده.
+</div>
+
+## SoftNetConnect — post 9621
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9621_1779005046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بریتانیا سامانه ضد پهپاد و کم‌هزینه «ای پی کی دبلیو‌ اس» را در خاورمیانه روی جنگنده‌های تایفون مستقر کرد؛ اقدامی که به گفته لندن برای افزایش حفاظت از نیروها و شرکای منطقه‌ای در برابر تهدیدات پهپادی انجام شده است
+</div>
+
+## SoftNetConnect — post 9619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دو فروند هواپیمای ترابری راهبردی C-17A نیروی هوایی آمریکا در حال حاضر از پایگاه‌های هوایی رامشتاین و اسپانگدالم به سمت خاورمیانه در حرکت هستند.
+
+هواپیماها همچنان در حال ورود به منطقه هستند، بنابراین فعلاً نشانه‌ای از وقوع اتفاق خیلی جدی وجود ندارد.
+</div>
+
+## SoftNetConnect — post 9618
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9618_1779005046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فعالیت جنگنده های آمریکا بر فراز اربیل گزارش داده شده
+</div>
+
+## SoftNetConnect — post 9617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ وقتی یک جنگ مثل دور اول جنگ رخ میده هواپیما های ترابری چون هدف ساده این منطقه ی جنگی ترک میکنن دقیق همین الگو قبل جنگ رخ داد ولی فک کنم چندتایی پر برگردن
+</div>
+
+## drtel — post 58614
+
+<div align="center">
+  <img src="telegram/content/drtel_58614_1779005046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت جدید اتاق جنگ اسرائیل
+🇮🇱: ⌛️ @DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 03:07
 ---
 
