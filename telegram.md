@@ -7,6 +7,310 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 23:20
+---
+
+## SoftNetConnect — post 9691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پرواز جنگنده های اسرائیلی بر فراز درعای سوریه
+</div>
+
+## SoftNetConnect — post 9690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+💢
+🚨
+💢
+💢
+</div>
+
+## SoftNetConnect — post 9689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 علی قلهکی، از اعضای تیم مذاکره‌کننده جمهوری‌اسلامی تو اسلام‌آباد: وزیر کشور پاکستان هم آمده بگه یا توافق کنید (با شرایط فعلی یعنی تسلیم) یا جنگ می‌شود!
+</div>
+
+## SoftNetConnect — post 9685
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9685_1779047433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دو جنگنده نیروی دریایی آمریکا تو آسمون و درجریان نمایش هوایی Gunfighter Skies به همدیگه برخورد کردن؛ خلبان‌ها با موفقیت اجکت کردن و سالمن.
+</div>
+
+## SoftNetConnect — post 9684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به آکسیوس:
+در داخل ایران میان «دیوانه‌ها و میانه‌روها» اختلاف وجود دارد!
+</div>
+
+## SoftNetConnect — post 9683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕فارس : ترامپ با آزادسازی اموال بلوکه شده مخالفت کرده
+</div>
+
+## SoftNetConnect — post 9682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+💢
+🚨
+💢
+💢
+</div>
+
+## SoftNetConnect — post 9681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: ما می‌خواهیم توافق کنیم. آن‌ها جایی که ما می‌خواهیم نیستند؛ باید به آن نقطه برسند، وگرنه ضربه سختی خواهند خورد، و آنها این را نمی‌خواهند
+</div>
+
+## SoftNetConnect — post 9680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕شبکه کان اسرائیل به نقل از یک مقام نظامی گزارش داد:
+
+ایالات متحده و اسرائیل سطح آماده‌باش خود را برای احتمال ازسرگیری درگیری با ایران افزایش داده‌ان
+</div>
+
+## SoftNetConnect — post 9678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣️کانفیگ ها ضریب ندارند.
+
+🗣️محدودیت کاربر و زمان ندارند.
+
+🗣️برای تمامی اپلیکیشن های خارجی ساخته شده.
+
+🗣️برنامه های نپستر و ویتوری.
+
+🗣️تمامی کانفیگ ها ساب دارند.
+
+💵پرداخت ارزی و ریالی (ساعت یازده پرداخت ریالی بسته میشود)
+
+🆕گیگی 190 هزار تومان
+
+
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 9677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕آکسیوس به نقل از دو مقام آمریکایی: انتظار میره ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کنه تا گزینه‌های اقدام نظامی علیه ایران رو بررسی کنه.
+</div>
+
+## SoftNetConnect — post 9676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕آکسیوس به نقل از دو مقام آمریکایی:
+انتظار میره ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کنه تا گزینه‌های اقدام نظامی علیه ایران رو بررسی کنه.
+</div>
+
+## SoftNetConnect — post 9675
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9675_1779047435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به کانال ۱۲ اسرائیل : ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم - اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن
+</div>
+
+## SoftNetConnect — post 9674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به کانال ۱۲ اسرائیل : ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم - اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن
+</div>
+
+## SoftNetConnect — post 9673
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9673_1779047436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به کانال ۱۲ اسرائیل : ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم
+- اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن
+</div>
+
+## SoftNetConnect — post 9672
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9672_1779047437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وزارت دفاع امارات می‌گوید سامانه‌های پدافند هوایی این کشور سه پهپاد (دِرون) را که از سمت مرز غربی وارد کشور شده بودند، رهگیری کرده‌اند. دو پهپاد با موفقیت سرنگون شدند. پهپاد سوم به بخش داخلی محیط حفاظتی نیروگاه هسته‌ای براکه در منطقه الظفره اصابت کرد. تحقیقات…
+</div>
+
+## SoftNetConnect — post 9671
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9671_1779047438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ در تروث سوشال :برای ایران، ساعت در حال تیک‌تاک است و بهتر است سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. زمان اصل است
+</div>
+
+## drtel — post 58645
+
+<div align="center">
+  <img src="telegram/content/drtel_58645_1779047438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور محسن رضایی :
+هرکسی که ضد جمهوری اسلامیه و باهاش مشکل داره، ضد ایرانم هست.
+
+@DrTeL
+</div>
+
+## drtel — post 58644
+
+<div align="center">
+  <img src="telegram/content/drtel_58644_1779047439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور محسن رضایی: صبر ما هم حدی داره، محاصره دریایی آمریکا رو می‌شکنیم!
+
+نیروهای مسلح ما دارن آماده‌ میشن...
+
+@DrTeL
+</div>
+
+## drtel — post 58643
+
+<div align="center">
+  <img src="telegram/content/drtel_58643_1779047440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق اعلام آموزش و پرورش؛
+
+امتحانات پایانی پایه‌های هفتم تا دهم تو تهران مجازی شد - تکلیف امتحانات پایه‌های یازدهم و دوازدهم هم به زودی اعلام میشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58642
+
+<div align="center">
+  <a href="telegram/content/drtel_58642_1779047441.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدئو وایرال شده از تجمع حامیان حکومت؛
+بی‌حجاب‌ها اومدن صف اول و چادری‌ها پشت سرشونن..
+
+@DrTeL
+</div>
+
+## drtel — post 58641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کون لق هرچی سیاستمداره
+این جنگ هم تموم میشه و آمریکایی ها برمی‌گردن سرخونه و زندگیشون
+اینترنتم دوباره بر‌میگرده
+فقط این وسط تنها چیزی که دیگه هیچوقت برنمیگرده سن و جوونی ما ایرانی‌هاست…
+</div>
+
+## drtel — post 58640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⌛️
+</div>
+
+## drtel — post 58639
+
+
+
+
+## drtel — post 58638
+
+<div align="center">
+  <img src="telegram/content/drtel_58638_1779047443.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+برای ایران، ساعت در حال تیک‌تاک کردنه و بهتره خیلی سریع دست‌به‌کار بشن؛
+
+وگرنه چیزی ازشون باقی نمی‌مونه، زمان کاملاً حیاتی و تعیین‌کننده‌ست!
+
+@DrTeL
+</div>
+
+## drtel — post 58637
+
+<div align="center">
+  <a href="telegram/content/drtel_58637_1779047444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸گراهام، سناتور نزدیک به ترامپ : هیچ فرقی بین رژیم فعلی و قبلی ایران نیست!
+اونا هنوز میخوان دنیا رو به وحشت بندازن، اسرائیل رو نابود کنن و سراغ ما هم بیان.
+من خواهان ضربه زدن به این رژیم هستم. بیشتر تحت فشارشون بذارید شاید توافق کنن ولى الان فکر میکنم دارن وقت کشی میکنن و بازی در میارن...
+زیرساخت های انرژی نقطه ضعف اصلی اوناست. اگه دوباره جنگ بشه، من بخش انرژی رو اولویت اصلی قرار میدم.
+هر هزینه ای لازم باشه پرداخت کنیم، پرداخت میکنیم؛ من حاضرم شغلم رو از دست بدم ولی ایران سلاح هسته‌ای نداشته باشه.
+چرچیل چی گفته بود؟ هر بهایی لازم باشه واسه شکست دادن هیتلر، می‌پردازیم.
+@DrTeL
+</div>
+
+## drtel — post 58636
+
+<div align="center">
+  <img src="telegram/content/drtel_58636_1779047446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ قابل توجه کاربران محترم وینکوبت، تمام قابلیت‌های سایت یکجا در ربات وینکوبت در دسترس کاربران قرار دارد.
+
+
+📌  کافیست با استارت کردن ربات و زدن دکمه‌ی وبسایت، وارد سایت بشید و به‌راحتی ثبت‌نام و پیش‌بینی مسابقات ورزشی رو انجام بدید: 
+👇
+
+🤖- @Wincobet_bot
+
+
+🎰    از پیش‌بینی مسابقات ورزشی تا کازینو آنلاین، بدون نیاز به خروج از تلگرام با مینی‌اپ هوشمند وینکوبت بازی کن!
+
+
+
+📌در وینکوبت ثبت‌نام کن و با شارژ از طریق کریپتو ۵٪ شارژ بیشتری رو دریافت کنید، همین حالا شروع کن: 
+👇
+
+
+🤖- @Wincobet_bot
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال سایت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم صاحب اکانت فیک نورمنم ولی الان بحث بحث وطنه
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 19:13
 ---
 
