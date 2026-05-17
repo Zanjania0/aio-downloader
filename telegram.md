@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 15:18
+---
+
+## SoftNetConnect — post 9647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک‌تایمز: اسرائیل حداقل دو پایگاه مخفی در صحرای عراق را به‌طور متناوب و برای بیش از یک سال اداره می‌کرده
+</div>
+
+## SoftNetConnect — post 9646
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9646_1779018486.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕خبرگزاری فارس: یه کشتی اسرائیلی تو خلیج فارس توقیف کردیم که خدمه‌ش عکس شهید علی خامنه‌ای و امام مجتبی خامنه‌ای رو روی دیواراش نصب کرده بودن.
+</div>
+
+## SoftNetConnect — post 9645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو با ترامپ تلفنی گفتگو می‌کند
+
+
+🚨
+🆕رسانه‌های عبری: نتانیاهو امروز با توجه به تحولات و تنش‌های منطقه با ترامپ صحبت خواهد کرد.
+
+امروز همچنین اسرائیل جلسه امنیتی برگزار میکند
+</div>
+
+## SoftNetConnect — post 9644
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9644_1779018487.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+♨️ وزارت امور خارجه کویت سفیر ایران را احضار کرد و پس از نفوذ یک واحد سپاه پاسداران به جزیره بوبیان و درگیری آنها با نیروهای کویتی، یادداشت رسمی اعتراض را به وی تحویل داد.
+</div>
+
+## SoftNetConnect — post 9643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕تایمز: انگلیس برای جنگ آماده می‌شود
+ 
+این رسانه انگلیسی از افزایش بودجه دفاعی انگلیس خبر داد و هدف از آن را آماده شدن برای جنگ های آینده اعلام کرد
+</div>
+
+## SoftNetConnect — post 9642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍سپاه با پهپاد به یه نیروگاه هسته‌ای تو ابوظبی امارات حمله کرده!
+</div>
+
+## SoftNetConnect — post 9640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مشاور سابق پنتاگون:تحرکات سطح بالای نیروی هوایی آمریکا در خاورمیانه شدت گرفته آماده باشید
+</div>
+
+## SoftNetConnect — post 9638
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/9638" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه جدید برنامه MahsaNG (اندروید)
+دقیقا قابلیتی که داخل شیر و خورشید انجام میدادید داخل کلاینت MahsaNG هم اضافه شده و به راحتی متصل میشه فقط کافیه دانلودش کنید طبق همون آموزش شیر و خورشید فقط داخل کلاینت MahsaNG وارد کنید سرعت خیلی خفنی داره حتما پیشنهادش میکنم.
+آموزش اتصال MahsaNG با روش CDN :
+
+- گام اول آخرین نسخه برنامه MahsaNG رو دانلود کنید.
+- گام دوم وارد برنامه شوید و سمت راست یا چپ برنامه سه تا خط رو کلیک کنید.
+- گام سوم Psiphon Settings بزنید
+- گام چهارم داخل پروتکل گزینه cdn fronting بزنید.
+- گام پنجم socks port روی 20808 بزارید و http port روی 20809
+- گام شیشم داخل کادر CDN Edge IPs آی پی های که برای شیر و خورشید قراز میدیم رو وارد کنید.
+- گام آخر Save Psiphone Settings رو بزنید و متصل شوید.
+</div>
+
+## SoftNetConnect — post 9637
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ونزوئلا : الکس صائب از نزدیکان رئیس جمهور سابق نیکولاس مادورو و رابط حزب الله و سپاه پاسداران جمهوری اسلامی رو دستگیر کردیم و به ایالات متحده تحویل دادیم
+</div>
+
+## SoftNetConnect — post 9636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 خبرگزاری فارس:
+جزئیاتی از درخواست‌های آمریکا از ایران در مذاکرات.
+
+۵ شرط اصلی واشنگتن به این شرح اعلام شده است:
+
+
+1️⃣عدم پرداخت هرگونه غرامت و خسارت از سوی آمریکا
+
+2️⃣خروج و تحویل ۴۰۰ کیلوگرم اورانیوم از ایران به آمریکا
+
+3️⃣ فعال ماندن تنها یک مجموعه از تأسیسات هسته‌ای ایران
+
+4️⃣عدم پرداخت حتی ۲۵ درصد از دارایی‌های بلوکه‌شدهٔ ایران
+
+5️⃣منوط‌شدن توقف جنگ در همه ساحتها به انجام مذاکره.
+
+
+در مقابل، ایران انجام هرگونه مذاکره را منوط به تحقق ۵ پیش‌شرط اعتمادساز دانسته است که عبارتند از:
+
+
+1️⃣پایان جنگ در همهٔ جبهه‌ها به‌ویژه لبنان
+
+2️⃣رفع تحریم‌های ضدایرانی
+
+3️⃣ آزادسازی پول‌های بلوکه‌شده ایران
+
+4️⃣جبران خسارات ناشی از جنگ
+
+5️⃣ پذیرش حق حاکمیت ایران بر تنگه هرمز.
+</div>
+
+## SoftNetConnect — post 9635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂محمد باقر قالیباف، به عنوان نماینده ویژه ایران در امور چین منصوب شد
+</div>
+
+## SoftNetConnect — post 9634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همراه و ایرانسل :
+
+
+185.200.232.43  
+185.200.232.40
+167.82.48.223
+151.101.128.223
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+</div>
+
+## drtel — post 58621
+
+<div align="center">
+  <img src="telegram/content/drtel_58621_1779018487.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درحالی که 79 روز‌ از قطع اینترنت بین‌الملل تو ایران می‌گذره؛
+
+پزشکیان اومد با سیم‌کارت سفید تو نرم افزاری که خودشون فیلترش کردن، یه توییت
+📱‌ زد و مدعی شد که؛ مسئولین وزارت ارتباطات تمام تلاششونو کردن تا مردم به اینترنت با کیفیت دسترسی داشته باشن و در‌آخر هم روز جهانی ارتباطات رو‌تبریک گفت.
+
+@DrTeL
+</div>
+
+## drtel — post 58619
+
+<div align="center">
+  <a href="telegram/content/drtel_58619_1779018488.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس:
+تو کشتی اسرائیلی🇮🇱 که توسط دریادلان نیروی دریایی ایران در آب‌های خلیج فارس توقیف شد، صحنه‌ای عجیب دیده شد؛
+
+خدمه کشتی تصاویر رهبر شهید (علی خامنه‌ای) و رهبر فعلی انقلاب (مجتبی خامنه‌ای) رو به دیواره‌های کشتی نصب کرده بودن.
+
+@DrTeL
+</div>
+
+## drtel — post 58618
+
+<div align="center">
+  <img src="telegram/content/drtel_58618_1779018490.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش فک کردم داری کسشر میگی
+رفتم دیدم پشمام ریخت
+</div>
+
+## drtel — post 58617
+
+<div align="center">
+  <a href="telegram/content/drtel_58617_1779018490.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دولت امارات
+🇦🇪 :
+یه پهپاد زده به یه ژنراتور بیرون نیروگاه هسته‌ای براکه و باعث آتیش‌سوزی شده؛
+ولی نه کسی آسیب دیده نه خطری برای بخش هسته‌ای و تشعشعات پیش اومده.
+همه‌چی الان عادیه و نیروگاه هم داره مثل قبل کار میکنه.
+از مردم خواستاریم خبرهارو از جاهای معتبر مثل‌ دکترتل شعبه امارات یا رسانه‌های رسمی دنبال کنن و به شایعات‌ دامن نزنن.
+
+@DrTeL
+</div>
+
+## drtel — post 58616
+
+<div align="center">
+  <a href="telegram/content/drtel_58616_1779018492.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بهزاد فراهانی، پدر گلیشفته:
+
+ما بیضش رو داشتیم، اونو (شاه) آوردیم پایین، شما هم دارید بیاید انقلاب کنید ما هم کنارتون!
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 11:34
 ---
 
