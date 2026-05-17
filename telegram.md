@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 02:10
+---
+
+## SoftNetConnect — post 9696
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9696_1779057645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ نقشه ایران گذاشته ک بهش حمله کرده
+</div>
+
+## SoftNetConnect — post 9695
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9695_1779057646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂
+🔴 ترامپ این عکس و توییت کرد
+</div>
+
+## SoftNetConnect — post 9694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هم اکنون گزارش CNN: ترامپ تیم امنیت ملی ارشد خود را برای بحث در مورد ایران فراخواند
+</div>
+
+## SoftNetConnect — post 9693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های تایید نشده و ضد و نقیض از فعال شدن پدافند در اهواز
+</div>
+
+## SoftNetConnect — post 9692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های تایید نشده و ضد و نقیض از فعال شدن پدافند در اهواز
+</div>
+
+## drtel — post 58653
+
+<div align="center">
+  <img src="telegram/content/drtel_58653_1779057646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ: بای بای قایق‌های تندرو [ایرانی] @DrTeL
+</div>
+
+## drtel — post 58652
+
+<div align="center">
+  <a href="telegram/content/drtel_58652_1779057647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما از دیشبه شروع کرده داره آموزش استفاده از کلاشینکف رو به مردم میده و حتی یکی از مجری‌ها، وسط استدیو شلیک هم کرد! خیلی‌ها میگن به احتمال زیاد این‌ها متوجه نزدیکی جنگ بعدی شدن؛ جنگی که گویا تقابل زمینی هم قراره داشته باشه.... @DrTeL
+</div>
+
+## drtel — post 58651
+
+<div align="center">
+  <img src="telegram/content/drtel_58651_1779057649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+
+بای بای قایق‌های تندرو [ایرانی]
+
+@DrTeL
+</div>
+
+## drtel — post 58650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسر آدم خایه نمی‌کنه بره فروشگاه
+
+عجیب و غریب همه چی بیناموس‌وار گرون شده
+</div>
+
+## drtel — post 58646
+
+<div align="center">
+  <a href="telegram/content/drtel_58646_1779057649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز دو جنگنده 18-FA نیروی دریایی آمریکا موقع نمایش هوایی تو آیداهو (یکی از ایالت‌های غرب آمریکا) تصمیم گرفتن از همدیگه لب بگيرن که نهايتا جفت جنگنده‌ها بگا رفتن.
+
++ هر چهار خلبان ایجکت کردن و زنده موندن.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 23:20
 ---
 
