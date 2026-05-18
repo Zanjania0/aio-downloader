@@ -7,6 +7,256 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 15:35
+---
+
+## SoftNetConnect — post 9713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕خبرگزاری CNN : پرزیدنت ترامپ جدیدا صبر خودش از دست داده و به طور جدی در حال بازگشت به درگیری شدید علیه جمهوری اسلامی است ، به عنوان تلاشی برای فشار مصالحه
+</div>
+
+## SoftNetConnect — post 9712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کانال 13 اسرائیل: طی 24 ساعت گذشته ده‌ها هواپیمای باری خالی از اسرائیل به پایگاه‌های آمریکایی در آلمان رفتن، مهمات بارگیری کردن و سپس به اسرائیل بازگشتن.
+
+ارتش اسرائیل در روزهای اخیر در سطح بالایی از آماده‌باش قرار داشته، اما جزئیاتی درباره نوع مهمات یا هدف این انتقال‌ها منتشر نشده.
+</div>
+
+## SoftNetConnect — post 9711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕منابع پاکستانی:آخرین پیشنهاد ایران برای پایان جنگ، یکشنبه شب(دیشب) به طرف آمریکایی ارسال شد
+</div>
+
+## SoftNetConnect — post 9710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت علوم : در ایران از هر ۱۰ بیکار، ۴ نفر دارای مدرک دانشگاهی هستند.
+</div>
+
+## SoftNetConnect — post 9709
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9709_1779105958.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گسترش آلودگی نفتی ایران به سواحل کویت
+
+؛بر اساس تصاویر ماهواره‌ای منتشر شده در شبکه‌های اجتماعی، با تداوم نشت نفت از زیرساخت‌های ایران، اکنون با عبور از مرزهای آبی، به سواحل کویت رسیده
+</div>
+
+## SoftNetConnect — post 9708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MahsaNG v16.apk
+</div>
+
+## SoftNetConnect — post 9707
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: اونا یه برگه می‌فرستن که هیچ ربطی به چیزی که توافق کرده بودیم نداره
+
+منم می‌گم، شماها دیوونه‌اید یا چی؟
+</div>
+
+## SoftNetConnect — post 9706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕منابع پاکستانی:آخرین پیشنهاد ایران برای پایان جنگ، یکشنبه شب(دیشب) به طرف آمریکایی ارسال شد
+</div>
+
+## SoftNetConnect — post 9705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاسخ سخنگوی وزارت امور خارجه به سوال خبرنگار در مورد تهدیدهای ترامپ: نگران نباشید؛ خوب بلدیم چگونه جواب بدهیم
+</div>
+
+## SoftNetConnect — post 9704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕منابع پاکستانی:آخرین پیشنهاد ایران برای پایان جنگ، یکشنبه شب(دیشب) به طرف آمریکایی ارسال شد
+</div>
+
+## SoftNetConnect — post 9703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: ایران داره التماس می‌کنه که یه توافق امضا بشه.
+</div>
+
+## SoftNetConnect — post 9702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕سی‌ان‌ان: پنتاگون فهرستی از اهداف برای حمله به ایران در صورت صدور دستور ترامپ آماده کرده
+</div>
+
+## SoftNetConnect — post 9701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕روزنامه خراسان: احتمال بروز جنگ و ترور مقامات سیاسی وجود دارد اما غافلگیر نمی‌شویم
+ 
+</div>
+
+## SoftNetConnect — post 9700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وائل عبدالحلیم فرمانده ارشد جهاد اسلامی فلسطین توسط ارتش اسرائیل در لبنان به همراه دخترش ، کشته شد.
+</div>
+
+## SoftNetConnect — post 9699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جلسه دادگاه نتانیاهو به دلایل امنیتی برای بار ده هزارم لغو شد
+</div>
+
+## SoftNetConnect — post 9698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸مارکو روبیو، ساعاتی پیش: دلیل توقف «پروژه آزادی»، این بود که پاکستان چنین درخواستی کرد. پاکستانی‌ها گفتند: «اگر شما پروژه آزادی را متوقف کنید، فکر می‌کنیم بتوانیم به یک توافق برسیم.»
+ما موافقت کردیم و آن را متوقف کردیم.
+</div>
+
+## SoftNetConnect — post 9697
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9697_1779105959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حوثی‌ها از سرنگونی یه پهپاد MQ-9 آمریکایی بر فراز یمن خبر دادن.
+</div>
+
+## drtel — post 58660
+
+<div align="center">
+  <img src="telegram/content/drtel_58660_1779105960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ : ایرانی‌ها واقعا دارن کَلم رو کیری میکنن!
+
+از یه طرف شدیداً دلشون می‌خواد توافق امضا کنن، ولی بعدش یه‌سری چیز میز می‌فرستن که اصلاً ربطی به چیزی که روش توافق کرده بودیم، نداره.
+
+منم میگم: “شماها دیوونه‌اید؟”
+
+@DrTeL | Fortune
+</div>
+
+## drtel — post 58659
+
+<div align="center">
+  <a href="telegram/content/drtel_58659_1779105961.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس : ساعدی نیا عذرخواهی کرد. متاسفانه بخاطر مشکلات بازار و تأمین مالی کارخونه، پسرم به اشتباه و تو یه زمان کوتاه، استوری‌ گذاشت و مغازه‌ها رو بست. الانم هم خودم و هم پسرم کاملا به اشتباه‌مون پی بردیم و از مردم عزیز عذرخواهی میکنیم چون که اگه مشکلی…
+</div>
+
+## drtel — post 58658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری تسنیم:
+
+ایران از طریق پاکستان، یه پیشنهاد 14 بندیِ اصلاح شده به آمریکا داد تا اونا هم بررسیش کنن و جواب بدن.
+
+@DrTeL
+</div>
+
+## drtel — post 58657
+
+<div align="center">
+  <img src="telegram/content/drtel_58657_1779105963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز وارد 80 اُمین روز قطعی اینترنت تو ایران شدیم...
+
+@DrTeL
+</div>
+
+## drtel — post 58656
+
+<div align="center">
+  <a href="telegram/content/drtel_58656_1779105964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیو وایرال شده از روزهای اول جنگ تو تهران؛
+
+
+خونه‌ی طرف بخاطر موج انفجار آسیب دیده و پلیس‌ 10 دقیقه وقت داده که اگه چیز مهمی مثل طلا، سند و... دارید، بردارید و فوری ساختمون رو ترک کنید که احتمال حمله مجدد هست..
+
+بعد خانومی از لا به لای اون همه شیشه خرده و آوار داره رد میشه که بره چیش رو پیدا کنه؟ موچین...
+
+
+@DrTeL
+</div>
+
+## drtel — post 58655
+
+<div align="center">
+  <img src="telegram/content/drtel_58655_1779105966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌ ۹۰٪ کاربرا هنوز اشتباه وارد سایت میشن!
+تو جزو اونایی یا میخوای حرفه‌ای عمل کنی؟
+
+
+✅ ورود سریع به وینکوبت فقط با یک کلیک ساده:
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌   نه لینک اضافی
+
+📌   نه سردرگمی
+
+📌   نه اتلاف وقت
+
+📌   مستقیم، سریع، بدون دردسر وارد شو!
+
+⏳   دیر بجنبی، از بقیه عقب می‌مونی.
+
+
+🔗 الان وقتشه مسیر درستو انتخاب کنی:
+
+
+🤖 @Wincobet_bot
+
+
+📌برای تحلیل بازی‌ها و آخرین اخبار سایت جوین بدید:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58654
+
+<div align="center">
+  <img src="telegram/content/drtel_58654_1779105967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت آسمون ایران و عراق بنظر خیلی کلیر میاد...
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 02:10
 ---
 
