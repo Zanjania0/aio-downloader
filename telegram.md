@@ -7,6 +7,428 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 21:55
+---
+
+## SoftNetConnect — post 9746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴‏سقف انتقال وجه و خرید در سال ۱۴۰۵:
+
+
+💢کارت به کارت بین بانکی ۱۵ میلیون تومان
+
+💢انتقال آنی با پل ۱۰۰ میلیون تومان
+
+💢انتقال سامانه ساتنا ۲۰۰ میلیون تومان
+
+💢انتقال سامانه پایا ۲۰۰ میلیون تومان
+
+💢خرید با کارت ۴۰۰ میلیون تومان
+
+💢برداشت از خودپرداز ۵۰۰ هزار تومان
+</div>
+
+## SoftNetConnect — post 9745
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9745_1779128747.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕تیتر نیویورک پست: ایالات متحده در آستانه از سرگیری نبرد با ایران با تمام توان است!
+</div>
+
+## SoftNetConnect — post 9744
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به نیویورک پست : ایران می‌دونه که به زودی چه اتفاقی براش میوفته، هیچ امتیازی داده نخواهد شد
+</div>
+
+## SoftNetConnect — post 9742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وزیر خزانه داری آمریکا: مجوز موقت 30 روزه برای خرید نفت روسیه صادر شد
+</div>
+
+## SoftNetConnect — post 9741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕واشنگتن پست: اسرائیل منتظر چراغ سبز آمریکا برای شروع عملیات است
+</div>
+
+## SoftNetConnect — post 9740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به سی‌ان‌بی‌سی:
+
+اظهارات رسانه‌های ایرانی مبنی بر موافقت واشنگتن با لغو تحریم‌های نفتی کذب است، هیچ تحریمی لغو نخواهد شد
+</div>
+
+## SoftNetConnect — post 9739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕العربیه: وزیر کشور پاکستان بعد از رد آخرین پیشنهاد ایران توسط آمریکا، دقایقی پیش ایران رو ترک کرد
+</div>
+
+## SoftNetConnect — post 9738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حس میکنم امشب نور افشانی داریم
+</div>
+
+## SoftNetConnect — post 9737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ به العربیه: کار بزرگی انجام می‌دیم و پیروزی از آن ماست.
+</div>
+
+## SoftNetConnect — post 9736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🇺🇸 کاخ سفید:
+آخرین پیشنهاد ایران که امروز ارائه شد نیز به دلیل ناکافی‌ بودن به صورت کامل رد شد، دیگر بمب ها مذاکره خواهند کرد.
+</div>
+
+## SoftNetConnect — post 9735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رسانه های عبری:
+ترامپ‌ امشب دستور بمباران را صادر میکند
+</div>
+
+## SoftNetConnect — post 9732
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕آکسیوس:
+
+آمریکا پیشنهاد امروز ایران را هم ناکافی دانست و کاملا ردش کرد. طبق گفته مقام آمریکایی در نقطه بسیار حساسی هستیم!
+</div>
+
+## SoftNetConnect — post 9731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+💢رویترز : آمریکا پیشنهاد جدید ایران را رد کرد
+</div>
+
+## SoftNetConnect — post 9730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9729
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9729_1779128747.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کمی‌پیش ستون عظیم دود از جنوب تهران، دوربین به سمت : بزرگراه یادگار امام، جنوب
+</div>
+
+## SoftNetConnect — post 9728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢 از آکسیوس به نقل از منبع کاخ سفید: پیشنهاد جدید ایران فرق چندانی با پیشنهادات قبلی نداشت و مورد قبول نیست.
+</div>
+
+## SoftNetConnect — post 9727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢 از آکسیوس به نقل از منبع کاخ سفید: پیشنهاد جدید ایران فرق چندانی با پیشنهادات قبلی نداشت و مورد قبول نیست.
+</div>
+
+## SoftNetConnect — post 9726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## drtel — post 58673
+
+<div align="center">
+  <a href="telegram/content/drtel_58673_1779128748.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما یه تازه عروس و داماد رو آورده تو برنامه تلویزیون؛
+
+
+
+🧑🏻‍💼داماد : مهریه خانمم یه پهپاد شاهده که ایشالا بخوره تو قلب تل‌آویو
+
+🎙️مجری : حالا اگه عروس خانم مهریه‌شو بخواد میخوای چیکار کنی؟ میدونی قیمتش چقدره؟
+
+🧑🏻‍💼داماد : خخخخخ
+
+
+@DrTeL
+</div>
+
+## drtel — post 58672
+
+<div align="center">
+  <img src="telegram/content/drtel_58672_1779128749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع به سایت وینکوبت
+
+
+✅ کاربران عزیز، برای ورود آسان و بدون دردسر به سایت وینکوبت، می‌توانید از ربات رسمی استفاده کنید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+🔹 ورود سریع و مستقیم به سایت
+🔹 بدون نیاز به جستجوی لینک‌های مختلف
+🔹 دسترسی راحت از داخل تلگرام
+
+
+📌  همه چیز به ساده‌ترین شکل ممکن داخل ربات برای شما کاربران محترم فراهم شده.
+
+
+🔗 اگر دنبال یه راه مطمئن و سریع برای ورود هستید، ربات وینکوبت بهترین انتخاب شماست:
+
+
+🤖 @Wincobet_bot
+
+
+🔗 برای دریافت تحلیل بازی‌ها و اطلاع از آخرین بروزرسانی‌ها، به کانال رسمی وینکوبت بپیوندید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58671
+
+<div align="center">
+  <img src="telegram/content/drtel_58671_1779128749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تیتر خبرگزاری نیویورک پست:
+
+آمریکا با تمام توان در حال آماده شدن برای حمله به ایرانه.
+
+@DrTeL
+</div>
+
+## drtel — post 58670
+
+<div align="center">
+  <img src="telegram/content/drtel_58670_1779128750.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+حتی اگه ایران کامل تسلیم بشه، بگه نیروی دریاییش تهِ دریا نابود شده، نیروی هواییش از بین رفته، کل ارتشش با دستای بالا و پرچم سفید از تهران بیاد بیرون و داد بزنه “تسلیم شدیم”، و رهبرهاش هم همه برگه‌های تسلیم رو امضا کنن و شکستشون جلوی آمریکا رو قبول کنن، باز هم نیویورک تایمز، CNN و بقیه رسانه‌های فیک‌نیوز تیتر میزنن که ایران یه پیروزی خفن و تاریخی مقابل آمریکا به دست آورده!
+
+دموکرات‌ها و رسانه‌ها کلاً از مسیر خارج شدن و رسماً کصخل شدن.
+
+@DrTeL
+</div>
+
+## drtel — post 58669
+
+<div align="center">
+  <a href="telegram/content/drtel_58669_1779128750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایلان ماسک :
+قطعا تا 10 سال آینده، حدود 19٪ از کل مسافت‌هایی که مردم طی می‌کنن، توسط هوش مصنوعی و ماشین‌های خودران انجام میشه؛
+در نتیجه، اینکه آدم خودش پشت فرمون بشینه و رانندگی کنه، تا اون موقع به یه چیز نسبتاً خاص و نیش تبدیل میشه، چون ماشین خودش تو رو جابه‌جا می‌کنه.
+فکر می‌کنم ربات‌های انسان‌نما هم تقریباً همه‌جا حضور داشته باشن، به نظرم خیلی خفن میشه، چون کیه که دلش نخواد C-3PO و R2-D2 شخصی خودش رو داشته باشه؟ البته حتی بهتر از اونا. فکر می‌کنم همه حداقل یکی، شاید حتی دوتاش رو بخوان.
+
+@DrTeL
+</div>
+
+## drtel — post 58668
+
+<div align="center">
+  <img src="telegram/content/drtel_58668_1779128752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید خبرنگار ارشد آکسیوس | axios:
+
+یه مقام ارشد آمریکایی به من گفته که پیشنهاد جدید ایران به آمریکا کافی نیست و خطر شروع دوباره‌ی جنگ رو به همراه داره.
+اگر جمهوری اسلامی موضع خودشو تغییر نده، آمریکا مجبوره مذاکرات رو از طریق بمب ادامه بده.
+
+@DrTeL
+</div>
+
+## drtel — post 58667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه ایران:
+از وقتی اینترنت تو ایران قطع شده فروش سیمکارت عراقی🇮🇶 زیاد شده؛
+چون این سیمکارتا تا 2کیلومتری داخل ایران جواب میدن و مردم تو شهرهای مرزی با عراق میرن سیمکارت عراقی میخرن و میرن 2کیلومتری مرز تا کارشونو انجام بدن.
+
+@DrTeL
+</div>
+
+## drtel — post 58666
+
+<div align="center">
+  <img src="telegram/content/drtel_58666_1779128752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گراهام، سناتور نزدیک به ترامپ:
+
+ایران ضعیف شده ولی وحشی‌تر و جسورتر عمل می‌کنه؛
+باید با یه ضربه کوتاه و قوی بهشون نشون بدیم که بازی تمومه.
+ترامپ باید از موضع قدرت کامل مذاکره کنه و کار رو یکسره کنه؛ وگرنه فقط مذاکره بدون قدرت، رژیم رو جسورتر می‌کنه و همه چیز بدتر می‌شه.
+
+@DrTeL
+</div>
+
+## drtel — post 58665
+
+<div align="center">
+  <a href="telegram/content/drtel_58665_1779128753.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیشب تو اتوبان تهران - کرج، حدود 20 تا ماشین پشت هم پنچر کردن و بعد که اومدن پایین، متوجه میخ سه پَر تو‌ لاستیک‌هاشون شدن؛
+
+گزارشگر ربطش داد به طرفدارای رضا پهلوی ولی رئیس پلیس راه گفته افتاده بودیم دنبال یه ماشین شوتی که اینارو ریخت زمین؛ تهشم دستگیرش کردیم...
+
+@DrTeL
+</div>
+
+## drtel — post 58664
+
+<div align="center">
+  <img src="telegram/content/drtel_58664_1779128754.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک‌تایمز به نقل از دو مقام خاورمیانه‌ای؛
+
+آمریکا و اسرائیل دارن بزرگترین آماده سازی نظامی بعد از آتش بس رو انجام میدن و احتمال داره حملات علیه ایران حتی از همین هفته دوباره شروع بشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری رویترز:
+پاکستان🇵🇰 الان که داره نقش میانجی بین ایران و آمریکا انجام میده، همزمان بر اساس یه پیمان دفاعی، داره یه اسکادران جنگنده، 8هزار نیروی نظامی و یه سامانه پدافند هوایی به عربستان سعودی اعزام میکنه تا دربرابر حملات احتمالی ایران از عربستان دفاع کنن.
+
+@DrTeL
+</div>
+
+## drtel — post 58662
+
+<div align="center">
+  <a href="telegram/content/drtel_58662_1779128755.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه فمبویِ مشهدی رفته حرم؛
+
+اونجا هرکی از راه می‌رسه میگه شما چرا چادر نداری؟ اینم میگه بابا بخدا من پسرم...
+
+
+@DrTeL
+</div>
+
+## drtel — post 58661
+
+<div align="center">
+  <img src="telegram/content/drtel_58661_1779128756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ کاربران محترم برای دسترسی به سایت وینکوبت فقط کافیه از طریق ربات وینکوبت وارد بشید.
+
+🤖- @Wincobet_bot
+
+🤖- @Wincobet_bot
+
+
+📌بدون نیاز به جستجو، بدون لینک‌های پراکنده، همه چیز از طریق خود ربات انجام میشه.
+
+
+📌ویژگی‌های ربات وینکوبت:
+👇
+
+▪︎ورود سریع و مستقیم به سایت
+▪︎دسترسی راحت از داخل تلگرام
+▪︎بدون مراحل پیچیده یا ورود جداگانه
+
+
+📌اگر دنبال یک راه ساده و سریع برای ورود به وینکوبت هستید، این ربات ساده‌ترین مسیر دسترسی شماست:
+👇
+
+🤖- @Wincobet_bot
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال سایت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 15:35
 ---
 
