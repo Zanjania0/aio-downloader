@@ -7,6 +7,220 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 01:43
+---
+
+## SoftNetConnect — post 9754
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9754_1779142405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واسه اولین بار تو تاریخ؛ صداوسیما امشب یکی رو کون لخت نشون داد...
+
+ی شورت می‌پوشیدی مومن
+</div>
+
+## SoftNetConnect — post 9753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ: امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان، محمد بن سلمان آل سعود، و محمد بن زاید آل نهیان، رئیس جمهور امارات، حمله نظامی برنامه ریزی شده به جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق انداخته اند، زیرا اکنون مذاکرات جدی در حال…
+</div>
+
+## SoftNetConnect — post 9752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ: امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان، محمد بن سلمان آل سعود، و محمد بن زاید آل نهیان، رئیس جمهور امارات، حمله نظامی برنامه ریزی شده به جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق انداخته اند، زیرا اکنون مذاکرات جدی در حال…
+</div>
+
+## SoftNetConnect — post 9751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدا و سیما : پنجمین عقب نشینی ترامپ 😂
+</div>
+
+## SoftNetConnect — post 9750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبرگزاری مهر :
+پدافند هوایی جزیره قشم فعال شده.
+</div>
+
+## SoftNetConnect — post 9749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ:
+
+امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان، محمد بن سلمان آل سعود، و محمد بن زاید آل نهیان، رئیس جمهور امارات، حمله نظامی برنامه ریزی شده به جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق انداخته اند، زیرا اکنون مذاکرات جدی در حال انجام است و به نظر آنها توافقات رهبران کاملاً منعقد خواهد شد و به نظر آنها همه توافقات انجام خواهد شد. قابل قبول برای ایالات متحده آمریکا و همچنین برای همه کشورهای خاورمیانه و فراتر از آن.
+</div>
+
+## SoftNetConnect — post 9748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابا گاییدی کله زرد😐
+</div>
+
+## SoftNetConnect — post 9747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 کانال ١٢ اسرائیل: اسرائیل یه سری پیام از آمریکا گرفته که میگن اون ده‌ها فروند هواپیمای سوخت‌رسانی که توی فرودگاه بن‌گوریون هستن، حداقل تا آخر امسال ( دی تا ماه ) اونجا می‌مونن.
+</div>
+
+## drtel — post 58688
+
+<div align="center">
+  <a href="telegram/content/drtel_58688_1779142407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+فعلاً اوضاع خیلی مثبت به نظر میاد، ولی خواهیم دید چه خواهد شد؛
+
+قبلاً هم چند بار فکر کردیم دیگه توافق نزدیکه و کار تمومه، ولی آخرش به بن‌بست خورد و ریده شد تو همچی، اما این دفعه یه‌جورایی فرق داره.
+
+@DrTeL
+</div>
+
+## drtel — post 58687
+
+<div align="center">
+  <a href="telegram/content/drtel_58687_1779142408.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+ما داشتیم آماده می‌شدیم که فردا یک حمله بسیار بزرگ انجام بدیم ولی من اون رو برای مدت کوتاهی به تعویق انداختم؛
+امیدوارم شاید برای همیشه، اما ممکنه فقط برای مدت کوتاهی باشه، چون گفت‌وگوهای بسیار مهمی با ایران داشتیم و باید ببینیم نتیجه‌شون چی میشه.
+از من خواسته شد توسط عربستان سعودی، قطر، امارات و چند کشور دیگه که این اقدام رو دو یا سه روز عقب بندازیم، یه بازه زمانی کوتاه، چون اونا فکر می‌کنن خیلی به رسیدن به یک توافق نزدیک شدن و اگه بتونیم به توافقی برسیم که در اون هیچ سلاح هسته‌ای به دست ایران نرسه، فکر می‌کنم اگه اون‌ها راضی باشن، ما هم احتمالاً راضی خواهیم بود.
+@DrTeL
+</div>
+
+## drtel — post 58686
+
+<div align="center">
+  <a href="telegram/content/drtel_58686_1779142410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شعار جدید طرفداران حکومت:
+
+مرگ بر امارات
+🇦🇪
+
+@DrTeL
+</div>
+
+## drtel — post 58684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کونی که امشب تو صداوسیما به نمایش گذاشته شد🔞
+
+@FUTBALLI18
+</div>
+
+## drtel — post 58683
+
+<div align="center">
+  <a href="telegram/content/drtel_58683_1779142410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واسه اولین بار تو تاریخ؛
+صداوسیما امشب یکی رو کون لخت نشون داد...
+
+@FUTBALLI18
+</div>
+
+## drtel — post 58682
+
+<div align="center">
+  <a href="telegram/content/drtel_58682_1779142411.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨خبرگزاری مهر : پدافند هوایی جزیره قشم فعال شده. @DrTeL
+</div>
+
+## drtel — post 58681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیزنم خودتون یه کاریش کنید
+</div>
+
+## drtel — post 58680
+
+<div align="center">
+  <img src="telegram/content/drtel_58680_1779142412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ : قرار بود فردا به ایران حمله کنیم! از سمت رهبران قطر، عربستان و امارات از من خواسته شد که حمله نظامی برنامه‌ریزی‌ شده‌مون علیه جمهوری اسلامی ایران رو که قرار بود فردا انجام بشه ـ متوقف کنم؛ چون مذاکرات جدی اکنون در حال انجامه! متحدان ما معتقدن توافقی…
+</div>
+
+## drtel — post 58679
+
+<div align="center">
+  <img src="telegram/content/drtel_58679_1779142412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ : قرار بود فردا به ایران حمله کنیم! از سمت رهبران قطر، عربستان و امارات از من خواسته شد که حمله نظامی برنامه‌ریزی‌ شده‌مون علیه جمهوری اسلامی ایران رو که قرار بود فردا انجام بشه ـ متوقف کنم؛ چون مذاکرات جدی اکنون در حال انجامه! متحدان ما معتقدن توافقی…
+</div>
+
+## drtel — post 58677
+
+<div align="center">
+  <a href="telegram/content/drtel_58677_1779142413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ : قرار بود فردا به ایران حمله کنم ولی بخاطر جدیت تو مذاکرات، به عقب انداختمش! @DrTeL
+</div>
+
+## drtel — post 58676
+
+<div align="center">
+  <a href="telegram/content/drtel_58676_1779142413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ :
+قرار بود فردا به ایران حمله کنم ولی بخاطر جدیت تو مذاکرات، به عقب انداختمش!
+
+@DrTeL
+</div>
+
+## drtel — post 58675
+
+<div align="center">
+  <a href="telegram/content/drtel_58675_1779142413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨خبرگزاری مهر :
+پدافند هوایی جزیره قشم فعال شده.
+
+@DrTeL
+</div>
+
+## drtel — post 58674
+
+<div align="center">
+  <img src="telegram/content/drtel_58674_1779142413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان نخ داد که میخوان مذاکره بکنن:
+
+گفتگو به معنای تسلیم نیست؛
+جمهوری‌اسلامی ایران با عزت و اقتدار وارد گفتگو میشه و از حقوق خودش عقب‌نشینی نمیکنه.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 21:55
 ---
 
