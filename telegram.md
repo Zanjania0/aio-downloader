@@ -7,6 +7,271 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 14:19
+---
+
+## SoftNetConnect — post 9778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی ضد و نقیض از تخلیه پالایشگاه نفت بندر عباس میدن
+</div>
+
+## SoftNetConnect — post 9777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕وال استریت ژورنال: ترامپ هنوز تمایل به حمله به ایران دارد!
+</div>
+
+## SoftNetConnect — post 9776
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان جنگ شروع بشه اولین جایی میفهمن بندر نیست تهران و کرجه
+</div>
+
+## SoftNetConnect — post 9775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های از انفجار در جزیره قشم امکان زیاد از طرف دریا بوده
+</div>
+
+## SoftNetConnect — post 9774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های از انفجار در جزیره قشم امکان زیاد از طرف دریا بوده
+</div>
+
+## SoftNetConnect — post 9773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های از انفجار در جزیره قشم
+امکان زیاد از طرف دریا بوده
+</div>
+
+## SoftNetConnect — post 9772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نشریه AFP : همزمان با سفر پوتین به چین، روسیه قصد داره رزمایش نیروهای هسته‌ایشو برگزار کنه
+</div>
+
+## SoftNetConnect — post 9770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 واشنگتن پست به نقل از یک مقام پاکستانی: ایران می‌خواد پیش از اعلام توافق هسته‌ای، به توافقی برای پایان دادن به جنگ دست پیدا کنه اما واشنگتن می‌خواد توافق بر سر همه مسائل رو یکجا اعلام کنه.
+</div>
+
+## SoftNetConnect — post 9769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴احتمال درگیری در این چند شب به شدت بالاست
+
+
+🔻شاید حتی امشب!
+</div>
+
+## SoftNetConnect — post 9768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صدای پدافند در دزفول
+</div>
+
+## SoftNetConnect — post 9767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنای آمریکا فردا برای هشتمین بار درباره قطعنامه اختیارات جنگی برای پایان دادن به جنگ در ایران رای گیری می کند، رای گیری تقریباً هفتگی در سنا از زمان شروع جنگ. مجلس نمایندگان نیز ممکن است در این هفته مجدداً رأی گیری کند، که آنها نیز 3 بار به همین موضوع رأی داده اند.
+</div>
+
+## SoftNetConnect — post 9766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون وزیر امور خارجه ایران: لغو تحریم‌ها، آزادسازی دارایی‌های مسدود شده و پایان محاصره در پیشنهاد اخیر ایران به آمریکا گنجانده شده است
+</div>
+
+## SoftNetConnect — post 9765
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9765_1779187784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک تایمز: ترامپ حملات اضافی را تا حدی به این دلیل متوقف کرد که مقامات پنتاگون هشدار داده بودند که ایران در حال تطبیق با کمپین هوایی است!
+
+فرماندهان ایرانی الگوهای پرواز جنگنده ها و بمب افکن های ایالات متحده را مورد مطالعه قرار داده بودند!!!
+</div>
+
+## SoftNetConnect — post 9764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 باراک راوید، خبرنگار آکسیوس:
+به گفته دو منبع آگاه، ترامپ ۲۴ ساعت پیش از اعلام موضعش، با رهبران عربستان سعودی، قطر و امارات متحده عربی به‌صورت تلفنی گفت‌وگو کرده.
+
+یک مقام آمریکایی گفت: «پیام واحدی از دوحه، ابوظبی و ریاض منتقل شد؛ تو این مضمون که به مذاکرات فرصت بدید، چون اگر به ایران حمله کنید، همهٔ ما بهای اون رو خواهیم پرداخت.
+
+یک منبع آگاه دیگه هم گفت ترامپ به برخی از متحدان سیاسی تندروی خودش گفته که این سه رهبر عرب بهش گفتن: «اونا نمی‌خوان تأسیسات نفت و انرژیشون در نتیجه تلافی‌جویی ایران هدف قرار بگیره.»
+</div>
+
+## SoftNetConnect — post 9763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ: ایران نهایتا ۳روز زمان داره
+</div>
+
+## SoftNetConnect — post 9762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: «ما آماده می‌شدیم که فردا یک حمله بسیار بزرگ انجام دهیم. من فعلاً آن را برای مدتی به تعویق انداختم؛ امیدوارم شاید برای همیشه، اما ممکن است فقط برای مدت کوتاهی باشد، چون گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و باید ببینیم نتیجه آن‌ها چه خواهد…
+</div>
+
+## SoftNetConnect — post 9760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : من فعلاً عقب انداختمش، امیدوارم شاید برای همیشه، ولی شاید هم فقط برای یه مدت کوتاه چون با ایران مذاکرات خیلی مهمی داشتیم و باید ببینیم چی ازش درمیاد
+</div>
+
+## SoftNetConnect — post 9759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ: مذاکرات جدی در حال حاضر برای دستیابی به توافق با ایران در جریان است.
+</div>
+
+## drtel — post 58694
+
+<div align="center">
+  <a href="telegram/content/drtel_58694_1779187785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چند روز پیش دريک | Drake رپرِ معروف کانادایی یهو سه تا آلبوم داد بیرون که حسابی ترکوند؛
+
+نکته جالبش اینجا بود که تو ترک Don't worry از آلبوم Iceman، به یه دختر ایرانی اشاره کرده!
+
+دختر، تو خوب میدونی بین ما چه خبره، من با یه چشم به هم زدن میام پیشت
+
+میخواد بره اونور میخواد پارتی رو ببینه
+
+گفت ایرانیه و شروع کرد فارسی حرف زدن
+
+نمیدونم این روزا چمه واقعاً چمه
+@DrTeL
+</div>
+
+## drtel — post 58693
+
+<div align="center">
+  <a href="telegram/content/drtel_58693_1779187786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴املاکی بازیچه دست خاص و عام شدی؛
+دیشب پیت هگست، وزیر جنگ آمریکا اینجوری ادای ترامپ رو درآورد...
+
+پیت ، تو باید مثل یه گوه محکم باشی!
+
+@DrTeL
+</div>
+
+## drtel — post 58691
+
+<div align="center">
+  <a href="telegram/content/drtel_58691_1779187788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت این روزهای تجمعات حامیان حکومت تو تهران عجیب شده؛
+
+از یه طرف همه دارن وسط خیابون عقد میکنن و ماشین عروسشونم مجهز به دوشکاست!
+
+از طرف دیگه آموزش استفاده از اسلحه هم خیلی باب شده و به خانوم‌ها دارن یاد میدن جطور شلیک کنن...
+
+@DrTeL
+</div>
+
+## drtel — post 58690
+
+<div align="center">
+  <img src="telegram/content/drtel_58690_1779187789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع و مستقیم به وینکوبت
+
+
+📌دیگه لازم نیست بین لینک‌های مختلف بگردی یا وقتت تلف بشه.
+
+
+📌فقط با یک ورود ساده به ربات رسمی، مستقیم وارد سایت شوید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+⚡️    ورود سریع و بدون معطلی
+
+⚡️   بدون لینک‌های اضافی و گیج‌کننده
+
+⚡️   دسترسی مستقیم از داخل تلگرام
+
+
+😀 همه چیز برای راحتی کاربران داخل ربات فراهم و قرار داده شده.
+
+🔵 برای تحلیل‌ها و اخبار سایت وارد کانال سایت شوید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58689
+
+<div align="center">
+  <a href="telegram/content/drtel_58689_1779187789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ هول خطاب به خانم‌های داخل جمعیت :
+شما خیلی خوشگل و خوشتیپ به‌نظر می‌رسید، شما دوتا بیاین اینجا ببینم.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 01:43
 ---
 
