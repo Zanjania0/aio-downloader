@@ -7,6 +7,504 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 23:05
+---
+
+## SoftNetConnect — post 9947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢 کانال ۱۲ اسرائیل:
+
+خبر فوری: نیروهای آمریکایی بر روی یک نفتکش ایرانی در خلیج عمان سوار شدند.
+</div>
+
+## SoftNetConnect — post 9946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لارنس نورمن: ایران و آمریکا در آستانه امضای یک توافق بزرگ هستند
+</div>
+
+## SoftNetConnect — post 9944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لارنس نورمن: ایران و آمریکا در آستانه امضای یک توافق بزرگ هستند
+</div>
+
+## SoftNetConnect — post 9943
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9943_1779305729.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙 خبرنگار: پیامت به خانواده‌های آمریکایی که از هوش مصنوعی می‌ترسن چیه؟ اونا نگرانن بچه‌هاشون تو آینده کار نداشته باشن.
+
+
+🇺🇸ترامپ: هوش مصنوعی فوق‌العاده‌ست و ایران نباید سلاح هسته‌ای داشته باشه
+😆
+</div>
+
+## SoftNetConnect — post 9942
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9942_1779305732.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙خبرنگار: آیا آمریکا در جریان مذاکرات صلح، به ایران پیشنهاد کاهش تحریم‌های نفتی داده است، همان‌طور که رسانه‌های دولتی ایران گزارش کرده‌اند؟
+
+
+🇺🇸ترامپ: نه، من چنین چیزی نشنیده‌ام. تا وقتی آن‌ها یک توافق را امضا نکنند، هیچ نوع امتیازی (مثل کاهش تحریم‌ها) نمی‌دهم.
+
+وقتی توافق را امضا کنند، می‌توانیم آن کشور را دوباره بازسازی کنیم و شرایطی بسازیم که برای مردمش واقعاً خوب باشد.
+اما نه، ما هیچ پیشنهادی نداده‌ایم.»
+</div>
+
+## SoftNetConnect — post 9941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ درباره مذاکره با ایران: راستش ما با آدم‌های خیلی خوبی طرف هستیم. داریم با افرادی مذاکره می‌کنیم که استعداد دارن و از هوش بالایی برخوردارن. صادقانه بگم، واقعاً تحت‌تأثیر قرار گرفتیم.
+</div>
+
+## SoftNetConnect — post 9940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢پس از ۷ تلاش ناموفق، سنای آمریکا طرحی را تصویب کرد که مصوبه کنگره را برای ادامه حملات نظامی به ایران الزامی می‌کند. سنا با رأی ۵۰ به ۴۷، اکنون به طور رسمی قطعنامه اختیارات جنگ در ایران» را پیش برد.
+</div>
+
+## SoftNetConnect — post 9939
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9939_1779305734.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ درباره مذاکره با ایران:
+
+راستش ما با آدم‌های خیلی خوبی طرف هستیم.
+داریم با افرادی مذاکره می‌کنیم که استعداد دارن و از هوش بالایی برخوردارن.
+صادقانه بگم، واقعاً تحت‌تأثیر قرار گرفتیم.
+</div>
+
+## SoftNetConnect — post 9938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ : ما منتظر پیشنهاد ایرانیم تا از تشدید تنش جابری کنیم
+</div>
+
+## SoftNetConnect — post 9937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕روزنامه الاخبار:
+اسرائیل در حال برنامه‌ریزی برای ترورهای گسترده در لبنان و ایران است
+</div>
+
+## SoftNetConnect — post 9936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونید چرا همه به جنب و جوش افتادن؟ چون امکان حمله از هر روز به هر دقیقه تبدیل شده
+</div>
+
+## SoftNetConnect — post 9935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕کلش ریپورت:
+اردوغان در تماس تلفنی با ترامپ درباره روابط ترکیه و آمریکا و مسائل منطقه‌ای صحبت کرد.
+</div>
+
+## SoftNetConnect — post 9934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق منابع عبری آمریکا یک ساعت پیش پیشنهاد جدید به جمهوری اسلامی ارسال کرده
+</div>
+
+## SoftNetConnect — post 9933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق منابع عبری آمریکا یک ساعت پیش پیشنهاد جدید به جمهوری اسلامی ارسال کرده
+</div>
+
+## SoftNetConnect — post 9932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 روزنامه اسرائیل هیوم : داخل کاخ سفید بین مقام‌های ارشد آمریکا بر سر سیاست مربوط به ایران، بحث و اختلاف شدیدی شکل گرفته. طبق این گزارش، جی‌دی ونس، استیو ویتکاف و جرد کوشنر از یک توافق اولیه برای پایان دادن به جنگ حمایت می‌کنن اما پیت هگست و مارکو روبیو…
+</div>
+
+## SoftNetConnect — post 9931
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9931_1779305737.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 روزنامه اسرائیل هیوم :
+
+داخل کاخ سفید بین مقام‌های ارشد آمریکا بر سر سیاست مربوط به ایران، بحث و اختلاف شدیدی شکل گرفته.
+
+طبق این گزارش، جی‌دی ونس، استیو ویتکاف و جرد کوشنر از یک توافق اولیه برای پایان دادن به جنگ حمایت می‌کنن
+
+اما پیت هگست و مارکو روبیو خواهان افزایش فشار و حتی حمله نظامی هستن.
+
+در نهایت ترامپ تصمیم گرفته یک فرصت دیگه به مذاکرات بده؛ هرچند از ونس به خاطر اینکه اجازه داده ایران مذاکرات رو طولانی کنه، انتقاد کرده.
+
+همچنین گفته شده نتانیاهو و محمد بن زاید از موضع سخت‌گیرانه علیه ایران حمایت می‌کنن، در حالی که عربستان و قطر ترجیح میدن تنش‌ها بیشتر نشه.
+
+طبق این گزارش، نتانیاهو در تماس تلفنی آخر شب با ترامپ، از تاکتیک‌های وقت‌کشی ایران ابراز ناراحتی کرده.
+
+ترامپ هم فعلاً منتظر پاسخ ایران مونده؛ اون هم بعد از دیدار وزیر کشور پاکستان با مقام‌های ارشد سپاه در تهران.
+</div>
+
+## SoftNetConnect — post 9930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕تسینم: آمریکا امروز یک پیشنهاد جدید را از طریق میانجی‌گری پاکستان به تهران تحویل داده است، بعد از اینکه ایران سه روز قبل پیش‌نویس ۱۴ بندی خودش را ارائه کرده بود.
+
+در حال حاضر ایران در حال بررسی این پیشنهاد است و هنوز پاسخی نداده. در همین زمان، میانجی پاکستانی در تهران تلاش می‌کند اختلافات بین دو طرف را کمتر کند. هنوز هیچ چیز نهایی نشده است.
+</div>
+
+## SoftNetConnect — post 9929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕طبق گزارش آکسیوس، دونالد ترامپ و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، دیروز یک تماس تلفنی طولانی و به‌گفته منابع «دشوار» داشتند که در آن درباره مسیر برخورد با ایران اختلاف نظر داشتند. ترامپ به نتانیاهو اطلاع داد که میانجی‌ها در حال کار روی یک «نامه نیت»…
+</div>
+
+## SoftNetConnect — post 9928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:
+
+یک 24 ساعت حیاتی می تواند این باشد که آنها بتوانند در مورد یک توافق موقت مذاکره کنند که در آن هر دو طرف جنگ را به مدت 30 روز برای مذاکره به حالت تعلیق در می آورند، یا ایالات متحده حمله ای را آغاز می کند - یک گزینه بسیار قابل قبول.
+</div>
+
+## drtel — post 58773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدا و سیما:
+مردم یه سر به فضای مجازی بزنن تا ببینن چطور مردم کل دنیا منتظرن جمهوری اسلامی مقابل آمریکا و اسرائیل بایسته و یه تو دهنی محکم بهشون بزنه؛ پاسخی که دل خیلی‌ها رو خنک کنه.
+
+@DrTe
+</div>
+
+## drtel — post 58772
+
+<div align="center">
+  <a href="telegram/content/drtel_58772_1779305738.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : ایران یه ملت شکست خورده‌ست، راستش الان داریم با آدمای حسابی و باهوشی طرف میشیم؛ آدمایی که هم استعداد دارن هم مغزشون خوب کار میکنه و یه جورایی ازشون خوشمون اومده و تحت تاثیر قرار گرفتیم. 🎙️خبرنگار : آمریکا تو مذاکرات به ایران پیشنهاد کم کردن تحریم…
+</div>
+
+## drtel — post 58771
+
+<div align="center">
+  <a href="telegram/content/drtel_58771_1779305740.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+ایران یه ملت شکست خورده‌ست، راستش الان داریم با آدمای حسابی و باهوشی طرف میشیم؛
+آدمایی که هم استعداد دارن هم مغزشون خوب کار میکنه و یه جورایی ازشون خوشمون اومده و تحت تاثیر قرار گرفتیم.
+🎙️خبرنگار : آمریکا تو مذاکرات به ایران پیشنهاد کم کردن تحریم نفتی داده یا نه؟
+
+
+🇺🇸ترامپ:
+نه، همچین چیزی نشنیدم، تا وقتی توافق رو امضا نکنن هیچ تحریمی رو کم نمیکنم. اگه توافق امضا بشه، میتونیم کمک کنیم ایران دوباره ساخته بشه و اوضاعش برای مردمش خوب بشه، ولی فعلاً هیچ پیشنهادی ندادیم.
+
+@DrTeL
+</div>
+
+## drtel — post 58770
+
+<div align="center">
+  <a href="telegram/content/drtel_58770_1779305742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صحبتای جنجالی آخوند رسایی، نماینده مجلس، قبل از کشته شدن علی خامنه‌ای:
+
+
+بعضیا هستن که میگن علی خامنه‌ای داره تلاش میکنه پسرش رو جانشین خودش کنه ولی اگه کسی ذره‌ای عقل داشته باشه به حرفی که اینا میزنن میخنده.
+اصلا ساز و کار تعیین رهبر، شرایط کسی که میخواد رهبر بشه، باید طرف سابقه کار اجرایی داشته باشه.
+بنابراین اصلا و ابدا چنین چیزی امکان نداره.
+
+@DrTeL
+</div>
+
+## drtel — post 58769
+
+<div align="center">
+  <img src="telegram/content/drtel_58769_1779305743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠 Final Europa League
+
+⚫️ Freiburg - 
+🔵 AstonVilla
+
+
+‼️ این روزا قبل از پیش‌بینی بیشتر از خود بازی باید نگران این باشی که VPN وصل میشه یا نه. 
+😀
+
+ربات تلگرام وینکوبت دقیقاً برای همین شرایط خوبه چون کل سایت داخل خود تلگرام اجرا میشه و دیگه لازم نیست هی بین سایت و VPN درگیرشی: 
+👇
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌براحتی میتونید برای بازی فینال لیگ اروپا وارد سایت بشید و این دیدار رو پیش‌بینی کنید، واریز و برداشت هم بصورت آنی می‌باشد.
+
+
+📌کانال رسمی وینکوبت: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58768
+
+<div align="center">
+  <a href="telegram/content/drtel_58768_1779305744.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مراسم عقد زوج‌های جانفدا پخش زنده شبکه خبر:
+
+👳‍♂: عروس خانم وکیلم؟
+
+🧕: عروس رفته از تنگه هرمز گل بیاره.
+
+@DrTeL
+</div>
+
+## drtel — post 58767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوی توافق میاد :
+</div>
+
+## drtel — post 58766
+
+<div align="center">
+  <a href="telegram/content/drtel_58766_1779305746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ بعد از دست دادن با یکی از دانشجوهای نظامی:
+
+از مردای خوشتیپ بدم میاد.
+
+@DrTeL
+</div>
+
+## drtel — post 58765
+
+<div align="center">
+  <a href="telegram/content/drtel_58765_1779305748.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+الان ایران نیروی دریایی، نیروی هوایی و همه چیزشو از دست داده تقریبا.
+تنها سوال اینه که بریم کار رو تموم کنیم یا توافق رو امضا میکنن؟
+ببینیم چه اتفاقی میفته.
+
+@DrTeL
+</div>
+
+## drtel — post 58764
+
+<div align="center">
+  <img src="telegram/content/drtel_58764_1779305749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری FinancialJuice به نقل از ترامپ:
+
+ایالات متحده تو "مراحل پایانی" مذاکرات با ایران قراره داره.
+خواهیم دید چه میشود.
+
+@DrTeL
+</div>
+
+## drtel — post 58763
+
+<div align="center">
+  <img src="telegram/content/drtel_58763_1779305750.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری از شبکه الحدث :
+احتمالا طی ساعات آینده، متن توافق ایران و آمریکا نهایی میشه؛ دور بعدی مذاکرات هم باز تو پاکستانه.
+
+@DrTeL
+</div>
+
+## drtel — post 58762
+
+<div align="center">
+  <a href="telegram/content/drtel_58762_1779305751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+من الان توی اسرائیل 99% محبوبیت دارم؛
+
+شاید بعد از تموم شدن این ماجراها برم اسرائیل
+🇮🇱 و برای نخست‌وزیری اونجا کاندید بشم.
+
+@DrTeL
+</div>
+
+## drtel — post 58761
+
+<div align="center">
+  <a href="telegram/content/drtel_58761_1779305752.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در تجمعات شبانه جمهوری اسلامی چه میگذرد؟
+
+
+@DrTeL
+</div>
+
+## drtel — post 58760
+
+<div align="center">
+  <a href="telegram/content/drtel_58760_1779305754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️خبرنگار : به نتانیاهو درباره ایران چی‌گفتید و اینکه چقدر باید صبر کنه؟
+
+
+🇺🇸ترامپ :
+نتانیاهو هر کاری من بگم انجام میده و کاملا باهام هماهنگه، اون مرد فوق‌العادیه؛
+فعلاً عجله‌ای برای حمله یا تصمیم نهایی علیه ایران ندارم، حتی با اینکه همه فشار میارن، اگه قرار به درگیری باشه ترجیح میدم تلفات کم باشه نه جنگ گسترده و کشتار زیاد.
+آمریکا عملاً هم تو ونزوئلا نفوذ کامل پیدا کرده هم ایران رو تحت فشار و کنترل شدید گذاشته، تا الان آمریکا فقط 13 نفر تلفات داده و اگه رئیس‌جمهور دیگه‌ای بود شاید صدها هزار نفر کشته می‌شدن.
+داخل ایران نارضایتی و عصبانیت مردم خیلی زیاد شده و به نظرم شرایط داخلی ایران ملتهب‌تر از قبل شده.
+
+@DrTeL
+</div>
+
+## drtel — post 58759
+
+<div align="center">
+  <img src="telegram/content/drtel_58759_1779305756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت رسمی تلگرام داخل اپلیکیشن ایکس، تو یه اقدام خیلی منطقی عکس مارک زاکربرگ (مالک فیسبوک و اینستاگرام) رو پست کرده نوشته:
+
+من میتونم از متاورس (جهان مجازی) اینو سفارش بدم؟
+
+@DrTeL
+</div>
+
+## drtel — post 58758
+
+<div align="center">
+  <img src="telegram/content/drtel_58758_1779305756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فربد، سخنگوی انجمن صنایع فرآورده‌های لبنی:
+
+قراره لبنیات از اول خرداد 20 درصد گرون بشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58757
+
+<div align="center">
+  <img src="telegram/content/drtel_58757_1779305757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 برد کوپر ، فرمانده سنتکام درباره حمله به مدرسه میناب: این مدرسه روی پایگاه موشک کروز فعال سپاه ساخته شده! آمریکا به طور عمدی غیرنظامیان رو هدف قرار نمیده. مردم ایران دشمن ما نیستن. تحقیقات در جریانه. این یه تحقیق پیچیده‌ست. این موضوع پیچیده‌تر از یه حمله…
+</div>
+
+## drtel — post 58756
+
+<div align="center">
+  <a href="telegram/content/drtel_58756_1779305758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 برد کوپر ، فرمانده سنتکام درباره حمله به مدرسه میناب: این مدرسه روی پایگاه موشک کروز فعال سپاه ساخته شده!
+آمریکا به طور عمدی غیرنظامیان رو هدف قرار نمیده. مردم ایران دشمن ما نیستن.
+تحقیقات در جریانه. این یه تحقیق پیچیده‌ست.
+این موضوع پیچیده‌تر از یه حمله معمولیه، به محض تموم شدن تحقیق، من کاملاً متعهد به شفافیتم.
+@DrTeL
+</div>
+
+## drtel — post 58755
+
+<div align="center">
+  <a href="telegram/content/drtel_58755_1779305759.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدئویی که حسابی تو فضای مجازی داخل و خارج وایرال شده؛
+
+
+
+یه پیرمرده که شبیه علی خامنه‌ایه و اتفاقا دستِ راستشم آسیب دیده، درحال خرید از یه سوپرمارکت تو روسیه🇷🇺 دیده شده!
+
+
+@DrTeL
+</div>
+
+## drtel — post 58754
+
+<div align="center">
+  <img src="telegram/content/drtel_58754_1779305761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ این روزا قبل از شرط‌بندی بیشتر از خود بازی باید نگران این باشی که VPN وصل میشه یا نه. 
+😀
+
+ربات تلگرام وینکوبت دقیقاً برای همین شرایط خوبه چون کل سایت داخل خود تلگرام اجرا میشه و دیگه لازم نیست هی بین سایت و VPN درگیرشی: 
+👇
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌میتونی مستقیم وارد بازی‌ها و کازینو شی، پیش‌بینی ثبت کنی، واریز و برداشت انجام بدی و همه‌چی خیلی سریع‌تر و راحت‌تر انجام میشه.
+
+
+🟣 آدرس دائمی سایت: wincobet.com
+
+
+📌کانال رسمی وینکوبت: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 14:07
 ---
 
