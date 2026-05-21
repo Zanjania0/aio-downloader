@@ -7,6 +7,266 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 02:22
+---
+
+## SoftNetConnect — post 10044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 رویترز به نقل از مقامات ایرانی :
+
+شکاف‌ها کاهش یافته اما هنوز به توافق نرسیده‌ایم؛ غنی‌سازی اورانیوم و تنگه هرمز از جمله نقاط اختلافی درباره توافق هستند
+</div>
+
+## SoftNetConnect — post 10043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر ها حاکی از بازگشت به وضعیت عادی خبر میدن
+</div>
+
+## SoftNetConnect — post 10042
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10042_1779403968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پدافند هوایی در چندین نقطه کشور همزمان فعال شده
+</div>
+
+## SoftNetConnect — post 10041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پدافند هوایی در چندین نقطه کشور همزمان فعال شده
+</div>
+
+## SoftNetConnect — post 10040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پدافند هوایی در چندین نقطه کشور همزمان فعال شده
+</div>
+
+## SoftNetConnect — post 10039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨مدام صدای انفجار از جنوب سما سیریک و قشم و بندر میاد
+</div>
+
+## SoftNetConnect — post 10038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صدای پدافند در تهران
+</div>
+
+## SoftNetConnect — post 10037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پدافند اصفهان فعال شده
+</div>
+
+## SoftNetConnect — post 10036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨مدام صدای انفجار از جنوب سما سیریک و قشم و بندر میاد
+</div>
+
+## SoftNetConnect — post 10035
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10035_1779403968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز یک خرداد تولد کله زرد گاهی دوست داشتنی و گاهی املاکی کصکش دونالد ترامپِ
+🇺🇸
+</div>
+
+## SoftNetConnect — post 10034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ده دقیقه پیش صدای انفجار در قشم به گوش میرسیده
+</div>
+
+## SoftNetConnect — post 10032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حملات هوایی سنگین اسرائیل به جنوب لبنان منابع لبنانی از آغاز دور دیگر حملات جنوبی لبنان خبر دادند. تا این لحظه شهرک‌های زوطر، کفرا و شوکین هدف این حملات قرار گرفته‌اند.
+</div>
+
+## SoftNetConnect — post 10031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حملات هوایی سنگین اسرائیل به جنوب لبنان
+
+منابع لبنانی از آغاز دور دیگر حملات جنوبی لبنان خبر دادند.
+
+تا این لحظه شهرک‌های زوطر، کفرا و شوکین هدف این حملات قرار گرفته‌اند.
+</div>
+
+## SoftNetConnect — post 10030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هشت سوخت رسان در آسمان منطقه!
+</div>
+
+## SoftNetConnect — post 10029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پدافند اصفهان فعال شده
+</div>
+
+## SoftNetConnect — post 10028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فرمانده ارتش پاکستان که امروز یک سفره برنامه ریزی شده به تهران داشت کنسل شد که دلیل اون منتشر نشده
+</div>
+
+## SoftNetConnect — post 10027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+💢
+🚨
+💢
+💢
+</div>
+
+## SoftNetConnect — post 10026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## SoftNetConnect — post 10025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+IP CDN :
+
+23.47.124.92
+23.47.49.246
+23.49.140.191
+23.47.112.185
+23.49.134.133
+23.49.60.65
+23.49.60.57
+23.49.5.211
+23.49.136.174
+23.49.25.145
+23.47.50.123
+23.49.60.51
+23.49.60.49
+23.47.124.90
+23.47.124.82
+23.47.124.86
+23.47.124.73
+23.47.124.76
+23.47.124.89
+23.47.49.240
+23.49.140.235
+23.47.124.91
+23.49.22.132
+23.49.109.91
+
+Url SNI:Google.com
+Host :
+proxyanonymous10.pahlavi.dpdns.org
+Port:8443
+</div>
+
+## drtel — post 58806
+
+<div align="center">
+  <a href="telegram/content/drtel_58806_1779403969.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 21 May، روز جهانی چایه
+☕️ @DrTeL
+</div>
+
+## drtel — post 58805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسمی : بالاخره اردیبهشت تموم شد.
+
+@DrTeL
+</div>
+
+## drtel — post 58804
+
+<div align="center">
+  <a href="telegram/content/drtel_58804_1779403970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙خبرنگار : آخر هفته عروسی پسرته، میری؟
+
+
+🇺🇸 ترامپ : چی بگم والا، دوست دارم برم اما یه مسئله به نام ایران هست و کلی کار دارم، امیدوارم ازدواج خوبی داشته باشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58803
+
+<div align="center">
+  <a href="telegram/content/drtel_58803_1779403971.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بازیگر صداوسیما خطاب به رضا پهلوی و طرفداراش :
+
+حیف نون‌ها دلم واستون میسوزه ولی دوستون دارم، اما این‌بار بزارین فراخوان بدن ببینیم کت تن کیه.
+
+@DrTeL
+</div>
+
+## drtel — post 58802
+
+<div align="center">
+  <img src="telegram/content/drtel_58802_1779403973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کمیسیون فاوا اتاق ایران : فعلاً صحبت‌ها و تصمیم‌ها داره به سمت وصل شدن دوباره اینترنت بین‌الملل میره و چیزی به اسم «اینترنت طبقاتی» قرار نیست به‌صورت رسمی اجرا بشه. @DrTeL
+</div>
+
+## drtel — post 58801
+
+<div align="center">
+  <a href="telegram/content/drtel_58801_1779403974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ :
+ایران نمیتونه اورانیوم با سطح بالای غنی‌شده‌اش رو نگه داره؛ وقتی این اورانیوم رو به دست بیاریم، احتمالاً نابودش میکنیم چون نمی‌خواهیمش و بهش نیازی نداریم — اما اجازه هم نمیدیم ایران این اورانیوم رو داشته باشه.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 22:00
 ---
 
