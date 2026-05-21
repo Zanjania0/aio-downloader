@@ -7,6 +7,288 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 15:28
+---
+
+## SoftNetConnect — post 9996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی با سرعت خیلی زیادی در حال بازسازی توان نظامیشه به حدی میشه گفت تا یک هفته دیگه به حالت اولیه قبل جنگش می‌تونه نزدیک بشه
+</div>
+
+## SoftNetConnect — post 9995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕رویترز به نقل از منابع ارشد ایرانی: مجتبی خامنه‌ای دستور داده که اورانیوم غنی شده در ایران باقی بماند.
+</div>
+
+## SoftNetConnect — post 9994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣️کانفیگ ها ضریب ندارند. 
+🗣️محدودیت کاربر و زمان ندارند. 
+🗣️برای تمامی اپلیکیشن های خارجی ساخته شده. 
+🗣️برنامه های نپستر و ویتوری. 
+🗣️تمامی کانفیگ ها ساب دارند. 
+💵پرداخت ارزی و ریالی (ساعت یازده پرداخت ریالی بسته میشود) 
+🆕گیگی 150 هزار تومان 
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 9993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣️کانفیگ ها ضریب ندارند.
+
+🗣️محدودیت کاربر و زمان ندارند.
+
+🗣️برای تمامی اپلیکیشن های خارجی ساخته شده.
+
+🗣️برنامه های نپستر و ویتوری.
+
+🗣️تمامی کانفیگ ها ساب دارند.
+
+💵پرداخت ارزی و ریالی (ساعت یازده پرداخت ریالی بسته میشود)
+
+🆕گیگی 150 هزار تومان
+
+
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 9992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ورود ناو هواپیمابر نیمیتز به کارائیب همزمان با تشدید تنش‌ها با کوبا!
+</div>
+
+## SoftNetConnect — post 9991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ورود ناو هواپیمابر نیمیتز به کارائیب همزمان با تشدید تنش‌ها با کوبا!
+</div>
+
+## SoftNetConnect — post 9990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕رویترز به نقل از منابع ارشد ایرانی:
+
+مجتبی خامنه‌ای دستور داده که اورانیوم غنی شده در ایران باقی بماند.
+</div>
+
+## SoftNetConnect — post 9989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨بندرعباس زلزله اومد
+</div>
+
+## SoftNetConnect — post 9987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های تایید نشده از ۳ انفجار در بندر عباس و قشم
+</div>
+
+## SoftNetConnect — post 9986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های تایید نشده از ۳ انفجار در بندر عباس و قشم
+</div>
+
+## SoftNetConnect — post 9985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨بندرعباس زلزله اومد
+</div>
+
+## SoftNetConnect — post 9984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 9983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕تایمز اسرائیل: ایران در جریان آتش‌بس از فرصت برای جابه‌جایی لانچرهای موشکی و آماده‌سازی برای دور جدید درگیری استفاده کرده
+</div>
+
+## SoftNetConnect — post 9982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ 
+🆕«میدل ایست آی»: سه منبع گفتند که انتظار دارند جنگ در هفته‌های آینده و پس از پایان دوره حج، از سر گرفته شود. ایالات متحده در گذشته از سیگنال‌های فریبنده و حیله‌های دیگر استفاده کرده تا سعی کند طرف مقابل را دچار احساس امنیت کاذب کند
+</div>
+
+## SoftNetConnect — post 9981
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_9981_1779364680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 تصاویری از همای سعادت بر فراز منطقه حفاظت‌شده سبزکوه چهارمحال‌وبختیاری
+
+طبق متون باستانی دیده شدن هما خبر های خوبی همراه خودش میاره
+</div>
+
+## SoftNetConnect — post 9980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕والا نیوز: منابع اسرائیلی می‌گویند آمریکایی‌ها در مذاکرات با ایران یک قدم به جلو برداشته‌اند، بنابراین برآوردها این است که حمله‌ای به ایران در 24 ساعت آینده تکرار نخواهد شد
+</div>
+
+## SoftNetConnect — post 9979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک چیزی براتون باز کنم الحدث ۸۲ بار خبر مذاکره کار کرده و همیشه گفته توافق نزدیکه و همینطور باراک روید اصلا قبل از جنگ شناخته شده نبود و حدود ۲۸ بار خبر اینکه توافق حتمی کار کرده
+
+خبرگزاری های مثل اکسیوس لابی های دارن ولی کاملا معتبر نیستن ، گاهی از طریق اکسیوس خبر های فیک بیرون میاد تا فریبندگی به وجود بیاد
+</div>
+
+## SoftNetConnect — post 9978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴علی قلهکی خلاصه این پیش نویس دادن و اینارو نوشت
+</div>
+
+## SoftNetConnect — post 9976
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_9976_1779364682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴علی قلهکی خلاصه این پیش نویس دادن و اینارو نوشت
+</div>
+
+## drtel — post 58792
+
+<div align="center">
+  <a href="telegram/content/drtel_58792_1779364682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غرفه‌های همسریابی هم به تجمعات شبانه اضافه شده؛
+
+
+اینجوریه که میری اطلاعات خودت و چیزهایی که دوست داری طرف مقابلت داشته باشه رو ثبت میکنی؛
+
+بعد اونا واست کیس جور میکنن و تهشم میرید اسلام‌دیت..
+
+@DrTeL
+</div>
+
+## drtel — post 58791
+
+<div align="center">
+  <img src="telegram/content/drtel_58791_1779364684.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+■ بدترین حس وقتیه که میخوای سریع وارد سایت شی، بازی شروع شده، ولی VPN وصل نمیشه یا سایت نصفه لود میشه. 
+😑
+
+- دیگه لازم نیست برای هر بار ورود به سایت VPN عوض کنی یا منتظر لود شدن بمونی؛
+
+
+📌در ربات تلگرام وینکوبت هم بازی‌ها و کازینو اجرا میشن، هم پیش‌بینی و واریز و برداشت مستقیم از داخل همون ربات انجام میشه:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌کانال رسمی وینکوبت: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58789
+
+<div align="center">
+  <img src="telegram/content/drtel_58789_1779364685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 کاخ سفید: خط قرمز ترامپ، اورانیوم غنی شده‌ست. ایران نه تنها نباید به سلاح هسته ای دست پیدا کنه بلکه باید کل مواد غنی شده رو هم تحویل بده. @DrTeL
+</div>
+
+## drtel — post 58788
+
+<div align="center">
+  <img src="telegram/content/drtel_58788_1779364685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+اگه 40 میلیون نفر طرفدار جمهوری‌اسلامی هستن، چرا صورتاشونو میپوشونن؟
+
+@DrTeL
+</div>
+
+## drtel — post 58787
+
+<div align="center">
+  <img src="telegram/content/drtel_58787_1779364686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جلسه روز چهارشنبه تو کاخ سفید پُر از تنش بود!
+نظر روبیو، وزیر امور خارجه و هگست، وزیر جنگ آمریکا این بود که تو این مرحله، بدون فشارِ زیاد از جمله تهدید به حمله و شدید‌تر کردن تحریم‌های اقتصادی، نمیشه از ایران امتیاز گرفت.
+ولی ونس ، ويتكاف و کوشنر معتقد بودن که پیشنهاد آخر ایران، نشونه‌هایی از انعطاف داره و میشه به یه توافق اولیه رسید.
+ترامپ تو این جلسه از دیدگاه ونس حمایت و ادامه مذاکرات با ایران رو تأیید کرد.
+
+@DrTeL | اسرائیل هیوم
+</div>
+
+## drtel — post 58786
+
+<div align="center">
+  <a href="telegram/content/drtel_58786_1779364686.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 21 May، روز جهانی چایه
+☕️
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 03:27
 ---
 
