@@ -7,6 +7,305 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 01:20
+---
+
+## SoftNetConnect — post 10179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴هواپیمای دیپلمات های قطری تهران بدون برنامه‌ریزی ترک کردن
+</div>
+
+## SoftNetConnect — post 10178
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴هواپیمای دیپلمات های قطری تهران بدون برنامه‌ریزی ترک کردن
+</div>
+
+## SoftNetConnect — post 10177
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10177_1779486617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴هواپیمای دیپلمات های قطری تهران بدون برنامه‌ریزی ترک کردن
+</div>
+
+## SoftNetConnect — post 10176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کرج و هشتگرد صدای جنگنده
+</div>
+
+## SoftNetConnect — post 10174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فعالیت شدید جنگنده های ارتش بر فراز کرج و تهران
+</div>
+
+## SoftNetConnect — post 10173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فعالیت شدید جنگنده های ارتش بر فراز کرج و تهران
+</div>
+
+## SoftNetConnect — post 10172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨نوتام اعلام شده
+</div>
+
+## SoftNetConnect — post 10171
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10171_1779486618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حریم هوایی غرب ایران تا صبح دوشنبه بسته شد.
+</div>
+
+## SoftNetConnect — post 10170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حریم هوایی غرب ایران تا صبح دوشنبه بسته شد.
+</div>
+
+## SoftNetConnect — post 10169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢دقایقی پیش بازار بورس آمریکا برای ۸۹ساعت آینده بسته شد..
+</div>
+
+## SoftNetConnect — post 10168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢دقایقی پیش بازار بورس آمریکا برای ۸۹ساعت آینده بسته شد..
+</div>
+
+## SoftNetConnect — post 10167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک منبع نزدیک به ترامپ احتمال انجام یک عملیات نظامی بزرگ و «سرنوشت‌ساز» نهایی را مطرح کرده که پس از آن او بتواند اعلام پیروزی کند.
+</div>
+
+## SoftNetConnect — post 10165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕 اکسیوس: ترامپ صبح جمعه ( امروز به وقت آمریکا ) با مشاوران ارشدش درباره ایران جلسه گذاشت و در حال بررسی برگشت به جنگه.
+</div>
+
+## SoftNetConnect — post 10164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕 اکسیوس: ترامپ صبح جمعه ( امروز به وقت آمریکا ) با مشاوران ارشدش درباره ایران جلسه گذاشت و در حال بررسی برگشت به جنگه.
+</div>
+
+## SoftNetConnect — post 10163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ استند آپ کمدی گذاشته😂
+</div>
+
+## SoftNetConnect — post 10161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴ناو آبی خاکی بوکسر و ناوگان هفتم همراهش ۱ روز فرستنده AIS یا خاموش کرده تا رهگیری نشه انگار وضعیت داره جدی میشه
+</div>
+
+## SoftNetConnect — post 10160
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10160_1779486618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی اومد به ترامپ فحش داد و اعتراض کرد
+
+
+🇺🇸ترامپ : برو پیش مامانت برو پیش مامانت😂
+</div>
+
+## drtel — post 58846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از وقتی نت ایرانی‌‌ها قطع شده یعنی یه چالشایی ترند شده که فقط اینو بگم؛
+
+بختتو گاییدم پسر ایرانی…
+نمیدونید چه چیزایی رو دارین از دست میدین😂
+</div>
+
+## drtel — post 58845
+
+<div align="center">
+  <img src="telegram/content/drtel_58845_1779486620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دریک ون‌اوردن | Derrick Van Orden سناتور جمهوری‌خواه آمریکا:
+
+من با ولیعهد رضا پهلوی و رهبران جنبش اپوزیسیون ایران دیدار کردم تا در مورد مبارزه مردم ایران برای آزادی گفتگو کنیم.
+اونا در حال کمک به پایان دادن به جنگی هستند که ملاهای مسلمان افراطی 47 سال پیش علیه آمریکا و جهانِ آزاد به راه انداختن.
+ما باید کنار کسایی که به دنبال آزادی و صلح هستن بایستیم.
+
+@DrTeL
+</div>
+
+## drtel — post 58844
+
+<div align="center">
+  <a href="telegram/content/drtel_58844_1779486621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 صحبت‌های مهم و حیاتی ترامپ وسط یکی از حساس‌ترین برهه‌های تاریخ : شاید باورتون نشه ولی منِ نابغه تونستم این معادله رو حل کنم! (203 × 9 ÷ 2 + 1324 − 1292) × 19 @DrTeL
+</div>
+
+## drtel — post 58843
+
+<div align="center">
+  <a href="telegram/content/drtel_58843_1779486622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : من باهوش‌ترین آدمی هستم که قراره تو زندگیت باهاش ملاقات کنی. @DrTeL
+</div>
+
+## drtel — post 58842
+
+<div align="center">
+  <a href="telegram/content/drtel_58842_1779486624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ابلفضلی طرف حساب مارو باش، همه وری یه تخته کم داره خودش… این شما و این دلقک بازی جدید ترامپ، رئیس جمهور ایالات متحده : @DrTeL
+</div>
+
+## drtel — post 58841
+
+<div align="center">
+  <a href="telegram/content/drtel_58841_1779486625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ابلفضلی طرف حساب مارو باش، همه وری یه تخته کم داره خودش…
+
+این شما و این دلقک بازی جدید ترامپ، رئیس جمهور ایالات متحده :
+
+
+@DrTeL
+</div>
+
+## drtel — post 58840
+
+<div align="center">
+  <img src="telegram/content/drtel_58840_1779486626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴همه‌ی امتحانات نیم‌سال جاری دانشگاه پیام‌نور، غیرحضوری و مجازی شد.
+
+@DrTeL
+</div>
+
+## drtel — post 58839
+
+<div align="center">
+  <img src="telegram/content/drtel_58839_1779486627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس :
+ترامپ تو چند روز اخیر حسابی از روند مذاکرات با ایران کلافه شده و حتی بحث یه «عملیات نظامی بزرگِ آخر» رو مطرح کرده؛
+عملیاتی که بعدش بتونه اعلام پیروزی کنه و بگه جنگ تموم شده.
+به گفته یه مقام آمریکایی؛ مذاکرات واقعاً «اعصاب‌خردکن» شده، پیش‌نویس توافق‌ها هر روز بین تهران و واشنگتن رد و بدل میشه ولی عملاً پیشرفت خاصی به دست نیومده.
+@DrTeL
+</div>
+
+## drtel — post 58838
+
+<div align="center">
+  <img src="telegram/content/drtel_58838_1779486627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙خبرنگار : آخر هفته عروسی پسرته، میری؟ 
+🇺🇸 ترامپ : چی بگم والا، دوست دارم برم اما یه مسئله به نام ایران هست و کلی کار دارم، امیدوارم ازدواج خوبی داشته باشه. @DrTeL
+</div>
+
+## drtel — post 58834
+
+<div align="center">
+  <a href="telegram/content/drtel_58834_1779486628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش چین
+🇨🇳 از پهپاد جدید خودش به نام «Robot Dove» رونمایی کرد؛
+این پهپاد‌ها رو شبیه به گنجشک و کلاغ طراحی کردن وصدای خیلی کمی دارن؛ بیشتر برای جاسوسی، شناسایی و عملیات مخفی استفاده میشن، حتی گفته میشه بعضیاشون می‌تونن از رادار و تشخیص بصری هم فرار کن!
+شما رسما با خارکصده‌ترین نوع پهپاد طرفین، حالا چرا؟
+چون مثلا یهو میبینی یه پرنده میاد دم پنجره اتاقت میشینه و نگات میکنه و تو دلت میسوزه میری براش یه تیکه غذا میاری که بخوره، ولی خبر نداری که اون بیناموس یه پهپاد انفجاریه که قراره تورو تا سفر آخرت همراهی کنه و یهو بوم، کصپر میشی میری رو هوا...
+
+@DrTeL
+</div>
+
+## drtel — post 58833
+
+<div align="center">
+  <img src="telegram/content/drtel_58833_1779486629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بابک زنجانی : شبکه اجتماعی خودمون به اسم «دات | Dot» رو که بر بستر بلاکچینه، طراحی کردیم و قراره تا قبل عید نوروز راه‌اندازیش کنیم. ما خیلی وقته که به یه شبکه اجتماعی قابل اعتماد و مستقل نیاز داشتیم؛ شبکه‌ای که همه بتونن بدون وابستگی به تصمیمات سیاسی یا محدودیت‌های…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 20:58
 ---
 
