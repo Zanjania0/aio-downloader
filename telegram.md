@@ -7,6 +7,207 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 14:06
+---
+
+## SoftNetConnect — post 10064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانال ۱۲ اسرائیل : بر اساس گزارش، پیش‌نویس توافق‌نامه در مجموع شامل ۹ ماده هست. توقف عملیات نظامی و جنگ رسانه‌ای بین کشورها، احترام به حاکمیت و خودداری از دخالت در امور داخلی و همچنین رعایت قوانین بین‌المللی و منشور سازمان ملل😂😂😂
+</div>
+
+## SoftNetConnect — post 10063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانال ۱۲ اسرائیل : بر اساس گزارش، پیش‌نویس توافق‌نامه در مجموع شامل ۹ ماده هست. توقف عملیات نظامی و جنگ رسانه‌ای بین کشورها، احترام به حاکمیت و خودداری از دخالت در امور داخلی و همچنین رعایت قوانین بین‌المللی و منشور سازمان ملل😂😂😂
+</div>
+
+## SoftNetConnect — post 10062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبرگزاری i24 News عبری : طبق رسانه های سعودی انتظار می رود پیش نویس نهایی میان آمریکا و جمهوری اسلامی تا ساعاتی آینده از طریق میانجی‌ پاکستانی اعلام شود
+</div>
+
+## SoftNetConnect — post 10061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی میگه بن بست یکی میگه تا ساعتی دیگه پیش نویس میاد بیرون بابا کصخل شدیم همه هم کصخل کردید
+</div>
+
+## SoftNetConnect — post 10060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منبع پاکستانی به الجزیره: اصرار آمریکا و ایران بر بالا بردن سقف خواسته‌هایشان درباره اورانیوم و تنگه هرمز، به بن‌بست در مذاکرات انجامیده.
+</div>
+
+## SoftNetConnect — post 10059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاید باورتون نشه داخل فلایت رادار چندین سوخت رسان آمریکا در چندین نوبت وارد حریم هوایی ایران شدن
+😐
+</div>
+
+## SoftNetConnect — post 10058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاید باورتون نشه داخل فلایت رادار چندین سوخت رسان آمریکا در چندین نوبت وارد حریم هوایی ایران شدن
+😐
+</div>
+
+## SoftNetConnect — post 10057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبرگزاری i24 News عبری : طبق رسانه های سعودی انتظار می رود پیش نویس نهایی میان آمریکا و جمهوری اسلامی تا ساعاتی آینده از طریق میانجی‌ پاکستانی اعلام شود
+</div>
+
+## SoftNetConnect — post 10056
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10056_1779446197.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸مارکو روبیو:
+برخی از پاسخ‌های متحدان ناتو ما به عملیات‌های ما در خاورمیانه به خوبی مستند شده‌اند و باید به آن‌ها پرداخته شود.
+</div>
+
+## SoftNetConnect — post 10055
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10055_1779446199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸مارکو روبیو می‌گوید تصمیمات در مورد نیروهای نظامی ایالات متحده در اروپا «تنبیهی» نیستند.
+</div>
+
+## SoftNetConnect — post 10054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨رأی‌گیری برای محدود کردن اختیارات جنگی ترامپ درباره ایران فعلاً کنسل شد جمهوری‌خواه‌های مجلس آمریکا رأی‌گیری درباره محدود کردن اختیارات جنگی ترامپ در قبال ایران رو لغو کردن؛ چون احتمال می‌دادن رأی کافی برای رد این طرح نداشته باشن.
+</div>
+
+## SoftNetConnect — post 10053
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10053_1779446201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨رأی‌گیری برای محدود کردن اختیارات جنگی ترامپ درباره ایران فعلاً کنسل شد
+
+جمهوری‌خواه‌های مجلس آمریکا رأی‌گیری درباره محدود کردن اختیارات جنگی ترامپ در قبال ایران رو لغو کردن؛ چون احتمال می‌دادن رأی کافی برای رد این طرح نداشته باشن.
+</div>
+
+## SoftNetConnect — post 10052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 روبیو: هیچ کشوری نباید پرداخت عوارض تنگه هرمز توسط ایران رو بپذیره؛ ما باید به اورانیوم غنی‌شده رسیدگی کنیم.
+</div>
+
+## SoftNetConnect — post 10051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ فروش ۱۴ میلیارد دلار سلاح به تایوان را متوقف کرده تا مهمات آمریکا برای جنگ با ایران حفظ شود؛ به‌گفتهِ هانگ کائو، سرپرست وزارت نیروی دریایی آمریکا.
+
+او به سناتورها گفت: “در حال حاضر ما این فروش را متوقف کرده‌ایم تا مطمئن شویم مهماتی که برای عملیات اِپیک فیوری لازم داریم در اختیارمان باشد.” کائو اضافه کرد که آمریکا همچنان “به‌قدرِ کافی” سلاح در اختیار دارد.
+</div>
+
+## SoftNetConnect — post 10050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕وال استریت ژورنال:
+میلیاردها دلار از طریق پلتفرم بایننس به شبکه‌هایی که نظام ایران را تامین مالی می‌کنند، جریان یافته است
+بابک زنجانی شخص مسئول ایرانی در معاملات از طریق پلتفرم بایننس است
+</div>
+
+## SoftNetConnect — post 10048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منبع پاکستانی به رویترز: راجب اینکه صبر ترامپ رو به پایانه نگرانیم اما تلاش‌های ما همچنان ادامه داره.
+</div>
+
+## SoftNetConnect — post 10047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕جروزالم پست: مقامات اطلاعاتی اسرائیل هشدار دادند که ایران ممکن است در حال برنامه‌ریزی برای حمله موشکی و پهپادی غافلگیرکننده علیه اسرائیل و کشورهای خلیج فارس باشد
+</div>
+
+## SoftNetConnect — post 10046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕وال استریت ژورنال: وزارت دادگستری آمریکا تحقیقات خود را درباره استفاده ایران از پلتفرم بایننس برای احتمالا دور زدن تحریم‌ها آغاز کرده
+</div>
+
+## SoftNetConnect — post 10045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شنیده شدن صدای انفجار در ابوظبی
+</div>
+
+## drtel — post 58811
+
+<div align="center">
+  <a href="telegram/content/drtel_58811_1779446202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش [Axios] تماس سه‌شنبه ترامپ و نتانیاهو درباره طرح جدید صلح ایران که با میانجی‌گری قطر و پاکستان ارائه شده، «تنش‌آلود» بوده. ترامپ هنوز معتقده امکان رسیدن به توافق با ایران وجود داره. ولی نتانیاهو به شدت میخواد که اقدام نظامی علیه ایران انجام بشه.…
+</div>
+
+## drtel — post 58810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- همه اون لحظه‌ای که سایت نصفه لود میشه و VPN قاطی میکنه رو تجربه کردیم، مخصوصاً وقتی وسط بازی یا ثبت پیش‌بینی باشی. 
+😑
+
+- ربات رسمی تلگرام وینکوبت کارو راحت و ورود به سایت رو آسون کرده:👇
+
+-
+🤖 @Wincobet_bot
+-
+🤖 @Wincobet_bot
+
+- برای کسایی که بیشتر وقتشون توی تلگرامه، خیلی کاربردیه.
+</div>
+
+## drtel — post 58808
+
+<div align="center">
+  <a href="telegram/content/drtel_58808_1779446204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای عجیب نیویورک تایمز : محمود گزینه رهبری ایران بود ولی قهر کرد! اسرائیل و آمریکا قبل از شروع حمله، در نظر داشتن که احمدی‌نژاد رو تو ایران به عنوان نماینده خودشون به قدرت برسونن و حتی با خود محمود هم مشورت کرده بودن. تو روز اول جنگ، اسرائیل با هدف اینکه…
+</div>
+
+## drtel — post 58807
+
+<div align="center">
+  <a href="telegram/content/drtel_58807_1779446206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حضور زوج‌های جانفدا تو مراسمات شبانه با کلاشینکف آبی و صولتی🎀:
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 02:22
 ---
 
