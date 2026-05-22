@@ -7,6 +7,426 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 20:58
+---
+
+## SoftNetConnect — post 10103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کمیته نیروهای مسلح سنای آمریکا: ترامپ باید به ارتش اجازه دهد تا انهدام توانمندی‌های نظامی ایران را تکمیل کند.
+</div>
+
+## SoftNetConnect — post 10102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ در تروث سوشال: با اینکه خیلی دوست داشتم کنار پسرم، دونالد ترامپ جونیور، و جدیدترین عضو خانواده ترامپ، نامزد آینده‌اش بتینا اندرسون باشم، اما شرایط مربوط به امور دولتی و علاقه‌ام به ایالات متحده آمریکا به من اجازه این کار را نمی‌دهد. احساس می‌کنم…
+</div>
+
+## SoftNetConnect — post 10101
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10101_1779470909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ در تروث سوشال:
+
+با اینکه خیلی دوست داشتم کنار پسرم، دونالد ترامپ جونیور، و جدیدترین عضو خانواده ترامپ، نامزد آینده‌اش بتینا اندرسون باشم، اما شرایط مربوط به امور دولتی و علاقه‌ام به ایالات متحده آمریکا به من اجازه این کار را نمی‌دهد.
+احساس می‌کنم در این مقطع زمانی مهم، لازم است در واشنگتن دی‌سی و در کاخ سفید بمانم.
+به دون و بتینا تبریک می‌گویم!
+</div>
+
+## SoftNetConnect — post 10100
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10100_1779470910.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دیده شدن سه پهباد در ماهشر
+</div>
+
+## SoftNetConnect — post 10099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین تلاش برای جلوگیری از جنگ
+</div>
+
+## SoftNetConnect — post 10098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین تلاش برای جلوگیری از جنگ
+</div>
+
+## SoftNetConnect — post 10097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عاصم منیر به تهران رسید
+</div>
+
+## SoftNetConnect — post 10096
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فردا و پس فردا هم بازار تعطیله
+</div>
+
+## SoftNetConnect — post 10095
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 العربی الجدید به نقل از منبعی در وزارت خارجه پاکستان: واشنگتن و تهران انعطاف کافی در پرونده‌های اصلی از خود نشان نمی‌دهند.
+
+سفر فرمانده ارتش (پاکستان) به تهران ممکن است آخرین تلاش برای جلوگیری از بازگشت منطقه به جنگ باشد
+</div>
+
+## SoftNetConnect — post 10094
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂بابک زنجانی ۸۵۰ میلیون دلار پول شویی کرده برای سپاه در این مدت
+</div>
+
+## SoftNetConnect — post 10092
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10092_1779470912.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ :
+
+ایران خیلی مشتاق است که به یک توافق برسد.
+ما ضربه سختی به آن‌ها زدیم.
+ما چاره‌ای نداشتیم، چون ایران نباید سلاح هسته‌ای داشته باشد.
+</div>
+
+## SoftNetConnect — post 10091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢 مجلس‌ رسما طرح ترور ترامپ رو تصویب کرد
+
+هر کس ترامپو بکشه دولت بهش پاداش 50 میلیون یورویی میده
+</div>
+
+## SoftNetConnect — post 10090
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقدر مذاکره خوب پیش می‌ره به به
+</div>
+
+## SoftNetConnect — post 10088
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10088_1779470914.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ :
+
+ما یه مقدار بدهی داریم که باید حلش کنیم و راهش رشد اقتصادیه قراره با رشد خیلی سریع از این بدهی خارج بشیم
+﻿
+</div>
+
+## SoftNetConnect — post 10087
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10087_1779470917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ :
+ایران داره میمیره تا به توافق برسه.
+</div>
+
+## SoftNetConnect — post 10086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عاصم منیر به تهران رسید
+</div>
+
+## SoftNetConnect — post 10085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎁کد تخفیف جدید : گیگی 150 هزار تومان
+
+
+🛍 Soft
+
+
+🛡 @SoftNetConnect_bot
+</div>
+
+## SoftNetConnect — post 10084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+براتون شگفتانه آوردم که کیف کنید
+</div>
+
+## drtel — post 58832
+
+<div align="center">
+  <img src="telegram/content/drtel_58832_1779470918.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دولت طالبان
+🇦🇫 با یه قانون جدید، ازدواج دخترای خردسال رو رسمی کرد؛
+طبق این قانون، دیگه اون محدودیت 16 سال واسه ازدواج دخترا برداشته شده و ملاک ازدواج رو «رسیدن به سن بلوغ» گذاشتن؛ یعنی ممکنه یه دختر از 9 سالگی هم اجازه ازدواج داشته باشه.
+تو این قانون حتی گفته شده اگه یه دخترِ باکره بعد از رسیدن به بلوغ سکوت کنه، این سکوت به معنی رضایتش به ازدواجه و بعدش دیگه حق نداره ازدواجی رو که تو بچگی واسش تعیین شده به‌هم بزنه؛ یعنی فقط قبل از رسیدن به بلوغ میتونه مخالفتش رو اعلام کنه.
+
+@DrTeL
+</div>
+
+## drtel — post 58831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+■ بدترین حس وقتیه که میخوای سریع وارد سایت شی، بازی شروع شده، ولی VPN وصل نمیشه یا سایت نصفه لود میشه. 
+😑
+
+- دیگه لازم نیست برای هر بار ورود به سایت VPN عوض کنی یا منتظر لود شدن بمونی؛
+
+📌در ربات تلگرام وینکوبت هم بازی‌ها و کازینو اجرا میشن، هم پیش‌بینی و واریز و برداشت مستقیم از داخل همون ربات انجام میشه:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+</div>
+
+## drtel — post 58829
+
+<div align="center">
+  <img src="telegram/content/drtel_58829_1779470919.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری وال‌استریت ژورنال:
+ایران روزی 1.8میلیون بشکه نفت صادر میکرد اما از وقتی محاصره‌ی دریایی آمریکا شکل گرفته این مقدار تقریبا به صفر رسیده.
+
+@DrTeL
+</div>
+
+## drtel — post 58828
+
+<div align="center">
+  <a href="telegram/content/drtel_58828_1779470920.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار آکسیوس: عاصم منیر فرمانده ارتش پاکستان
+🇵🇰، امروز برای بستن توافق بین آمریکا و ایران و تموم کردنِ جنگ، راهی تهران میشه. @DrTeL
+</div>
+
+## drtel — post 58827
+
+<div align="center">
+  <a href="telegram/content/drtel_58827_1779470921.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+ایران داره از شدت نیاز، برای توافق له‌له می‌زنه؛
+
+ما ضربه سنگینی بهشون زدیم، چاره‌ای هم نداشتیم، چون ایران نباید به سلاح هسته‌ای دست پیدا کنه.
+
+@DrTeL
+</div>
+
+## drtel — post 58826
+
+<div align="center">
+  <img src="telegram/content/drtel_58826_1779470923.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قطعی اینترنت تو ایران از 2000 ساعت گذشت...
+
+@DrTeL | netblocks
+</div>
+
+## drtel — post 58825
+
+<div align="center">
+  <img src="telegram/content/drtel_58825_1779470924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عادی ترین تبلیغاتی که تلگرام به کانال دکترتل میده :
+
+@DrTeL
+</div>
+
+## drtel — post 58824
+
+<div align="center">
+  <img src="telegram/content/drtel_58824_1779470925.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه‌ی منوتو برای ششصدوهفتاد و هشتمین بار اعلام کرد که آخرین برنامه‌ی این شبکه 3خرداد پخش میشه و بعدش این شبکه برای همیشه تعطیل میشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58823
+
+<div align="center">
+  <a href="telegram/content/drtel_58823_1779470926.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار آکسیوس:
+عاصم منیر فرمانده ارتش پاکستان
+🇵🇰، امروز برای بستن توافق بین آمریکا و ایران و تموم کردنِ جنگ، راهی تهران میشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58822
+
+<div align="center">
+  <img src="telegram/content/drtel_58822_1779470926.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه سیخ جوجه کباب، ناقابل 1 میلیون و 300 هزار تومن.
+
+@DrTeL
+</div>
+
+## drtel — post 58821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارزش دانلودش برا منی که دختر بودم ۱۲ از ۱۰ بود
+ممنونم بابت محتوای عالیتون 🫶🏻
+</div>
+
+## drtel — post 58817
+
+<div align="center">
+  <a href="telegram/content/drtel_58817_1779470927.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چالش جدیدی که از روسیه
+🇷🇺 شروع شده و این روزا حسابی بین همه دخترای دنیا درحال وایرال شدنه؛ فعلا چون اینترنت تو ایران قطعه با فاجعه خانه خرابی تو اینستا مواجه نیستیم، وای به روزی که دخترای ایرانی بخوان این چالشو تو اینستا مد کنن و عنشو دربیارن… @DrTeL
+</div>
+
+## drtel — post 58816
+
+<div align="center">
+  <img src="telegram/content/drtel_58816_1779470929.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 هنوز دنبال روش ورود به سایت می‌گردی؟
+
+📌کاربران حرفه‌ای دیگه وقتشون رو هدر نمیدن.
+✌️
+
+
+✅ سریع‌ترین راه ورود به وینکوبت فقط از طریق ربات رسمی:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+⚡️   بدون نیاز به جستجو
+
+⚡️   بدون لینک‌های فیک و اشتباه
+
+⚡️   ورود مستقیم و راحت
+
+🔗 فقط یک کلیک تا ورود کامل به سایت وینکوبت: 
+👇
+
+
+🤖 @Wincobet_bot
+کانال رسمی سایت وینکوبت:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58815
+
+<div align="center">
+  <img src="telegram/content/drtel_58815_1779470930.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امیدوار، سخنگوی اتاق اصناف :
+اومدن اینترنت بین‌الملل رو قطع کردن بعد دارن همون رو به صورت اینترنت پرو یا گرون‌تر به مردم میفروشن؛
+شمایی که به بعضی کسب‌وکارای مجازی «اینترنت پرو» میدی، خب فایدش چیه وقتی مردم عادی هنوز اینترنت درست‌حسابی ندارن؟
+این دقیقاً مثل اینه که پلمب یه مغازه رو باز کنی، ولی نذاری هیچ مشتری‌ای واردش بشه و خرید کنه.
+شما درصورتی میتونی اینترنت بین‌الملل رو قطع کنی که زیرساخت درست با اپلیکیشن داخلی درست و درمونی داشته باشی.
+
+@DrTeL
+</div>
+
+## drtel — post 58814
+
+<div align="center">
+  <img src="telegram/content/drtel_58814_1779470931.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یزدی‌خواه، نایب رئیس کمیسیون فرهنگی مجلس :
+
+مسئولای بالا به این نتیجه رسیدن که فعلاً وصل شدن دوباره اینترنت جهانی به نفع کشور نیست، و باعث به‌خطر افتادن جون مردم میشه؛
+شورای عالی امنیت اینترنت رو به خاطر مسائل امنیتی قطع کردن و فعلاً هم قرار نیست برای همه آزاد بشه، فقط بعضی ارگان‌ها و آدمایی که کار تخصصی دارن اینترنت بین‌الملل می‌گیرن.
+مردم برن از پلتفرم‌های داخلی (مثل بله و ایتا و …) استفاده کنن و همچنین به زودی هم قراره بااونایی که VPN میفروشن به‌شدت برخورد بشه.
+@DrTeL
+</div>
+
+## drtel — post 58813
+
+<div align="center">
+  <a href="telegram/content/drtel_58813_1779470931.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طرفدارای حکومت تو تجمعات شبانه، گرفتن عکس پیرمردی که می‌گفت؛ «اونایی که در خط امام نیستن، خون شهدا رو پایمال می‌کنن، کص خار یک یکشون» رو چاپ کردن، چسبوندن روی چوب و تو سطح شهر چرخوندن…
+
+@DrTeL
+</div>
+
+## drtel — post 58812
+
+<div align="center">
+  <img src="telegram/content/drtel_58812_1779470933.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز 22 May، روز جهانی شرلوک هولمزه.
+
++این روز رو به اون اطرافیان فضول زندگیت که عین کارآگاه‌ها سرشون تو کونته تبریک بگو
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 14:06
 ---
 
