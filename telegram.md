@@ -7,6 +7,355 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 15:15
+---
+
+## SoftNetConnect — post 10260
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10260_1779536757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕العربیه:
+یک هیئت فنی و حقوقی پاکستانی عازم تهران است
+</div>
+
+## SoftNetConnect — post 10259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عاصم منیر به قالیباف :
+
+من و شما هر دو سربازان وطن خود هستیم، و سربازان صادقانه و بدون تردید صحبت می‌کنند، نه به زبان خاکستری، بلکه با کلمات واضح؛ سفید یا سیاه.
+</div>
+
+## SoftNetConnect — post 10258
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی سخنگوی وزارت خارجه : فاصله هنوز با طرف آمریکایی بسیار زیاد است
+</div>
+
+## SoftNetConnect — post 10257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕العربیه: عاصم منیر پیام تهدیدآمیز آمریکا رو به تهران برد.
+</div>
+
+## SoftNetConnect — post 10256
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های از عراق و رسانه های خارجی : در طول هفته های گذشته نیروهای دلتا فورس و دیگر یگان های ویژه ی ارتش آمریکا مجموعه تمریناتی در نزدیکی مرز عراق و ایران برگزار کردند که شامل نفوذ در ارتفاع پایین با هلیکوپتر های آپاچی و بلک هاوک و فرود نیروهای آمریکایی…
+</div>
+
+## SoftNetConnect — post 10255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش های از عراق و رسانه های خارجی :
+
+در طول هفته های گذشته نیروهای دلتا فورس و دیگر یگان های ویژه ی ارتش آمریکا مجموعه تمریناتی در نزدیکی مرز عراق و ایران برگزار کردند که شامل نفوذ در ارتفاع پایین با هلیکوپتر های آپاچی و بلک هاوک و فرود نیروهای آمریکایی در عمق خاک ایران
+</div>
+
+## SoftNetConnect — post 10254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عاصم منیر امروز با پزشکیان و قالیباف جلسه گذاشته جهت خایمالی سهمگین
+</div>
+
+## SoftNetConnect — post 10250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک هواپیمای نظامی پاکستان تهران ترک کرد
+</div>
+
+## SoftNetConnect — post 10249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی بی کی نظامی نویس معروف عرب :
+
+دیپلماسی ساعت بیست و چهار.
+
+نخست‌وزیر پاکستان به چین می‌رود، فرمانده ارتش او در تهران است، و قطر دوباره به دیپلماسی میانجیگری و رفت‌وآمد بین طرف‌ها بازگشته است.
+
+پایتخت‌های منطقه‌ای هم‌زمان در همه جهات حرکت می‌کنند، در جستجوی فرمولی که به نظر نمی‌رسد هنوز پیدا شده باشد.
+
+و بر اساس آنچه می‌دانم، وضعیت به حدی پیچیده شده که یک شخصیت برجسته منطقه‌ای به آرامی به تهران سفر کرده است، در تلاشی برای ترمیم چیزی که بسیاری آن را «شکاف‌های غیرقابل پر کردن» می‌نامند.
+
+ناشناخته این است: چه زمانی لحظه انفجار فرا می‌رسد.
+
+و معلوم این است که آن لحظه در راه است.
+</div>
+
+## SoftNetConnect — post 10248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕الحدث : آمریکا به تهران پیام داده اگه توافقو رد کنه، عواقب بدی در انتظارشه
+</div>
+
+## SoftNetConnect — post 10247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد ایرانی به العربیه : آنچه تا کنون برای امریکا پیشنهاد داده ایم قابل قبول نیست ، آنها بسیار عصبانی هستند
+</div>
+
+## SoftNetConnect — post 10246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منابع به اسکای نیوز عربی: میانجی پاکستانی موفق شده بر مانع پرونده هسته‌ای ایران غلبه کنه!
+</div>
+
+## SoftNetConnect — post 10245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکای نیوز و الحدث و حتی بعضی اوقات اکسیوس فیک کار میکنن ولی اکسیوس لابی داره و اغلب خبراش میتونن درست باشن
+</div>
+
+## SoftNetConnect — post 10244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منابع به اسکای نیوز عربی: میانجی پاکستانی موفق شده بر مانع پرونده هسته‌ای ایران غلبه کنه!
+</div>
+
+## SoftNetConnect — post 10243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منابع به اسکای نیوز عربی: میانجی پاکستانی موفق شده بر مانع پرونده هسته‌ای ایران غلبه کنه!
+</div>
+
+## SoftNetConnect — post 10242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور راجر ویکر: الان تو مقطعی هستیم که می‌تونه میراث سیاسی ترامپ رو مشخص کنه. غریزه ترامپ این بوده که کاری رو که تو ایران شروع کرده، کامل تموم کنه؛
+
+اما بهش توصیه‌های اشتباه می‌شه تا دنبال توافقی بره که حتی ارزش کاغذی که روش نوشته شده رو هم نداره.
+
+فرمانده کل نیروهای آمریکا باید اجازه بده ارتش حرفه‌ای آمریکا نابودی توان نظامی متعارف ایران رو کامل کنه و تنگه رو دوباره باز کنه. ادامه تلاش برای توافق با حکومت ایران ممکنه نشونه ضعف تلقی بشه. باید کاری رو که شروع کردیم، تموم کنیم.
+
+وقت اقدام گذشته.
+</div>
+
+## SoftNetConnect — post 10241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای کانال ۱۳ عبری به نقل از نیویورک‌تایمز: ترامپ اسرائیل را از مذاکرات با ایران کنار گذاشته است.
+</div>
+
+## drtel — post 58873
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وارد 85مین روزی شدیم که اینترنت بین‌المللی تو ایران، به طور کامل قطعه…
+
+@DrTeL
+</div>
+
+## drtel — post 58872
+
+<div align="center">
+  <a href="telegram/content/drtel_58872_1779536757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یکی از حامیان حکومت با یه بنر رفته تو تجمعات شبانه و گفته؛
+
+
+امروز تولدمه، به جای کادو، یه جمله به اسرائیل بگو!
+
+
+
+یه پسره هم رد شد بهش گفت ماااااادرتو گایییییدم...
+
+@DrTeL
+</div>
+
+## drtel — post 58871
+
+<div align="center">
+  <img src="telegram/content/drtel_58871_1779536759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ اگه هنوز داری تو این اوضاع اینترنت داری دستی دنبال ورود به سایت می‌گردی یعنی عملاً داری زمان رو از دست میدی.
+
+
+♨️ کاربران حرفه‌ای مستقیم وارد سایت میشن.
+
+و این مسیر از اینجا شروع میشه:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+⚡️بدون لینک‌های فیک
+
+⚡️بدون پیچیدگی
+
+⚡️بدون معطلی اضافه
+
+
+📌چیزی که ساده به نظر میاد، دقیقاً همون چیزیه که کاربران حرفه‌ای‌ها دنبالش هستن:
+👇
+
+
+🤖 @Wincobet_bot
+
+
+📌کانال رسمی وینکوبت:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 58867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه قصد ترور ایوانکا رو داشت؛
+یه فرد عراقیِ
+🇮🇶 32 ساله عضو سپاه به نام"محمد باقر سعد داوود الساعدى" قصد داشت دختر ترامپ رو بُکشه ولی تو ترکیه با نقشه‌ی خونه ایوانکا، دستگیر و به آمریکا فرستاده شد.
+بعد ترور قاسم سلیمانی، الساعدی به بقیه می‌گفت باید ایوانکا رو بکشیم تا خونه ترامپ رو همون‌جور که اون خونه ما رو سوزوند، بسوزونیم...
+@DrTeL | NY POST
+</div>
+
+## drtel — post 58866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقت کردین خیلی وقته خبری از رسانه‌ معتبر اسرائیلی «ترور آلارم» نیست؟
+
+احتمالاً ادمینش تو حمله‌ اول اسرائیل و آمریکا به تهران کشته شده، یا هنوز نتونسته یه کانفیگ پیدا کنه که باهاش وصل شه و بیاد تلگرام.
+</div>
+
+## drtel — post 58865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنها یک گاومیش دارند،یک گاومیش زیبا، گاومیشی که هرگز ندیده اید آنها باید آن را تحویل بدهند، اگر ندهند ما با سلاخ ها و قصاب های زیبایمان آنرا از آنجا خارج میکنیم.
+از توجه شما سپاسگزارم.
+DJT.
+</div>
+
+## drtel — post 58860
+
+<div align="center">
+  <a href="telegram/content/drtel_58860_1779536760.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو بنگلادش
+🇧🇩 یه گاومیشی که از نظر استایل و قیافه‌ای شباهت زیادی به ترامپ داره حسابی مورد توجه مردم دنیا و رسانه‌ها قرار گرفته، طوری که شبکه خبر استرالیا به صورت خیلی جدی خبرشو کار کرده؛
+
+
+نکته جالب‌تر این ماجرا اینجاست که؛ اسم این گاو بیچاره رو «دونالد ترامپ» گذاشتن.
+
+@DrTeL
+</div>
+
+## drtel — post 58858
+
+<div align="center">
+  <a href="telegram/content/drtel_58858_1779536761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید و پرمفهوم «دن اسکاوینو» دستیار ترامپ و معاون رئیس دفتر کاخ سفید تو توییتر
+📱 :
+
+@DrTeL
+</div>
+
+## drtel — post 58857
+
+<div align="center">
+  <a href="telegram/content/drtel_58857_1779536762.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کامران اتابکی، تاریخ نگار و پژوهشگر ایرانی : اگه تو ایران هستین یا اقوامی تو ایران دارین، لطفاً به همه اطلاع بدین از هرنوع اماکن دولتی فاصله بگیرن؛ من خبرهای بسیار نامطلوبی از اینجا دارم که قراره امروز غروب یا به احتمال زیاد فردا بزنن. @DrTeL
+</div>
+
+## drtel — post 58856
+
+<div align="center">
+  <a href="telegram/content/drtel_58856_1779536763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ تو توییتر
+📱 که با هوش مصنوعی ساخته شده؛
+مجری خبرگزاری CBS که مخالف ترامپه و همیشه ضدش حرف میزنه رو میندازه تو سطل آشغال.
+@DrTeL
+</div>
+
+## drtel — post 58855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آمریکا داره برای حملات نظامی جدید علیه ایران آماده میشه.
+
+@DrTeL | CBS News
+</div>
+
+## drtel — post 58854
+
+<div align="center">
+  <a href="telegram/content/drtel_58854_1779536765.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت جدید اتاق جنگ اسرائیل: ⌛ +آخرین باری که اتاق جنگ اسرائیل همچین توییتی زد، فرداش اسرائیل و آمریکا به ایران حمله کردن. @DrTeL
+</div>
+
+## drtel — post 58849
+
+<div align="center">
+  <a href="telegram/content/drtel_58849_1779536766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چالشی که جدیدا مد شده ولی در راستای همون چالش قبلی روسی یعنی «Booty transition» قرار داره؛
+
+اینطوریه که مردم با آهنگ «Set me free» میان از خودشون فیلم میگیرن و یهو دوربین رو میبرن سمت باسن🍑 مبارکشون و ادامه ماجرا…
++ازوقتی که ملت دیدن ویو تو این‌چیزاست، حتی سلبریتی‌ها هم شروع کردن به انجام این چالش!
+ارزش دانلود برای پسرا 120 از 100
+ارزش دانلود برای خانم‌ها 85 از 100
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 01:20
 ---
 
