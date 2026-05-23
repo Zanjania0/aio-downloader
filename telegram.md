@@ -7,6 +7,334 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 02:45
+---
+
+## SoftNetConnect — post 10410
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10410_1779578112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلم لحظه‌ای که تیراندازی در خارج از کاخ سفید رخ داد
+</div>
+
+## SoftNetConnect — post 10409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلم لحظه‌ای که تیراندازی در خارج از کاخ سفید رخ داد
+</div>
+
+## SoftNetConnect — post 10408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نیرو ویژه آمریکا در کاخ سفید
+</div>
+
+## SoftNetConnect — post 10407
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10407_1779578113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نیرو ویژه آمریکا در کاخ سفید
+</div>
+
+## SoftNetConnect — post 10406
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10406_1779578114.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلم لحظه‌ای که تیراندازی در خارج از کاخ سفید رخ داد
+</div>
+
+## SoftNetConnect — post 10405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تیراندازی شدیدی در محوطه کاخ سفید اتفاق افتاده
+</div>
+
+## SoftNetConnect — post 10404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار احتمالا تا 155 یا 145 بیاد پایین
+
+ولی پامپ بعدیش 200 ، 215 ست شک نکنید.
+</div>
+
+## SoftNetConnect — post 10403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک تایمز به نقل از سه مقام ایرانی: در این توافق موضوع هسته‌ای را به مرحله‌ای بعدی موکول می‌کند. ولی این توافق به آزادسازی ۲۵ میلیارد دلار از دارایی‌های مسدودشده در خارج از کشور منجر خواهد شد.
+</div>
+
+## SoftNetConnect — post 10402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک تایمز به نقل از سه مقام ایرانی: در این توافق موضوع هسته‌ای را به مرحله‌ای بعدی موکول می‌کند. ولی این توافق به آزادسازی ۲۵ میلیارد دلار از دارایی‌های مسدودشده در خارج از کشور منجر خواهد شد.
+</div>
+
+## SoftNetConnect — post 10401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک تایمز: تنگه هرمز طبق توافق بدون گرفتن هیچ هزینه‌ای از کشتی‌ها باز میشه.
+</div>
+
+## SoftNetConnect — post 10400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕نیویورک تایمز: تنگه هرمز طبق توافق بدون گرفتن هیچ هزینه‌ای از کشتی‌ها باز میشه.
+</div>
+
+## SoftNetConnect — post 10399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕آکسیوس: متن توافق رسما امضا شده است
+</div>
+
+## SoftNetConnect — post 10398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 العربی به‌نقل از منبعی در وزارت‌خارجه پاکستان: این توافق نهایی نیست، موقته.
+
+و روی باز شدن تنگه هرمز و رفع محاصره‌دریایی متمرکزه. رفع‌محدودیت دارایی‌های بلوکه شده ایران هم داره بررسی میشه.
+</div>
+
+## SoftNetConnect — post 10397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕آکسیوس: متن توافق رسما امضا شده است
+</div>
+
+## SoftNetConnect — post 10395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🪙 تتر به قیمت ۱۶۸هزار تومان رسید
+</div>
+
+## SoftNetConnect — post 10394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕ادعای المیادین: توافقنامه شامل خروج ناوگان آمریکا از نزدیکی ایران است. همچنین شامل آزادسازی نیمی از دارایی‌های مسدود شده ایران به مبلغ ۱۲ میلیارد دلار می‌باشد
+</div>
+
+## SoftNetConnect — post 10393
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10393_1779578116.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕ادعای المیادین: توافقنامه شامل خروج ناوگان آمریکا از نزدیکی ایران است.
+همچنین شامل آزادسازی نیمی از دارایی‌های مسدود شده ایران به مبلغ ۱۲ میلیارد دلار می‌باشد
+</div>
+
+## SoftNetConnect — post 10392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حال حاضر اسرائیلیا ، اماراتیا ، ایرانیا ، جمهوری خواهان اطرافش کلا هم پیمانان و طرفداراش به شدت علیه اش ان
+</div>
+
+## SoftNetConnect — post 10391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار کانال ۱۴ اسرائیل :
+
+امیدوارم صبح که بیدار می‌شویم بفهمیم ترامپ مذاکره‌کنندگان ایرانی را در جریان یک گفت‌وگوی صلح دستگیر کرده است. آن‌ها را برای محاکمه به آمریکا بیاورند یا از آن‌ها به عنوان اهرم فشار برای باز کردن تنگه هرمز و حذف اورانیوم ایران استفاده کنند.
+</div>
+
+## SoftNetConnect — post 10390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕فارس : ترامپ دروغ میگه که قراره تنگه باز بشه ایران موافقت کرده تنگه فقط با مدیریت خودش باز بشه و همه چیز باید تحت کنترلش باشه
+</div>
+
+## drtel — post 58920
+
+<div align="center">
+  <img src="telegram/content/drtel_58920_1779578116.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اتاق جنگ اسرائیل
+🇮🇱 :
+
+ایرانِ آزاد 🦁☀️
+
+@DrTeL
+</div>
+
+## drtel — post 58919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک‌تایمز : تفاهم‌نامه‌ای که بین آمریکا و ایران داره نهایی میشه، ربطی به توافق نهایی نداره و برنامه هسته‌ای ایران رو شامل نمیشه. تو این تفاهمنامه، هیچ بندی در مورد مسئله هسته‌ای ایران و خروج ناوگان‌های آمریکا از اطراف ایران نیست‌. این تفاهمنامه شاملِ…
+</div>
+
+## drtel — post 58917
+
+<div align="center">
+  <a href="telegram/content/drtel_58917_1779578117.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فوری :
+هم اکنون بیرون کاخ سفید حدود 20 تا 30 تا تیر شلیک شده!
+سرویس مخفی آمریکا هم سریع خبرنگارایی که تو محوطه کاخ سفید بودن رو جمع کرده و برده داخل اتاق کنفرانس خبری تا ازشون محافطت کنه.
+@DrTeL | NBC News
+</div>
+
+## drtel — post 58916
+
+<div align="center">
+  <img src="telegram/content/drtel_58916_1779578118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک‌تایمز :
+تفاهم‌نامه‌ای که بین آمریکا و ایران داره نهایی میشه، ربطی به توافق نهایی نداره و برنامه هسته‌ای ایران رو شامل نمیشه.
+تو این تفاهمنامه، هیچ بندی در مورد مسئله هسته‌ای ایران و خروج ناوگان‌های آمریکا از اطراف ایران نیست‌.
+این تفاهمنامه شاملِ "آزادسازی 25 میلیارد دلار از دارایی‌های مسدود شده ایران، پایان درگیری‌ها تو ایران و لبنان، باز شدن تنگه هرمز (بدون عوارض) و پایان محاصره دریایی آمریکاست".
++ بعد امضای این تفاهمنامه، به دو طرف یه مهلت 30 الی 60 روزه واسه رسیدن به توافق هسته‌ای داده شده.
+
+@DrTeL
+</div>
+
+## drtel — post 58915
+
+<div align="center">
+  <a href="telegram/content/drtel_58915_1779578119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: توافقنامه توسط ایران و آمریکا همین الان امضا شد!
+
+
+❌ این خبر که تو رسانه‌های مختلف داره دست به دست میشه، فیکه؛ آکسیوس همچين چیزی نگفته.
+
+@DrTeL
+</div>
+
+## drtel — post 58914
+
+<div align="center">
+  <img src="telegram/content/drtel_58914_1779578119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دکتر حالم خوب نیست، این خبرایی که از توافق میاد راسته؟
+</div>
+
+## drtel — post 58913
+
+<div align="center">
+  <img src="telegram/content/drtel_58913_1779578120.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بعد شدت گرفتن اخبار توافق؛
+تتر ریزشی شد و به 165,000 تومن رسید.
+
+@DrTeL
+</div>
+
+## drtel — post 58912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این وضع یعنی ترامپ برا مراسم خاکسپاری خامنه ای میاد؟
+</div>
+
+## drtel — post 58911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقا این پویش جانفدا که میگن از کجا باید ثبت نام کنیم؟
+</div>
+
+## drtel — post 58910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست خدا عیان شد
+ترامپ پابوس مشتبا شد
+</div>
+
+## drtel — post 58908
+
+<div align="center">
+  <a href="telegram/content/drtel_58908_1779578120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : الان تو دفتر بیضی کاخ سفید هستم و دقایقی پیش با رهبرای عربستان، امارات، قطر، پاکستان، ترکیه، مصر، اردن و بحرین درباره ایران و توافق صلح صحبت کردم؛ توافق تقریبا تنظیم شده و فقط مونده یه‌سری جزئیات نهایی بین آمریکا، ایران و بقیه کشورا جمع‌بندی بشه،…
+</div>
+
+## drtel — post 58907
+
+<div align="center">
+  <img src="telegram/content/drtel_58907_1779578121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : الان تو دفتر بیضی کاخ سفید هستم و دقایقی پیش با رهبرای عربستان، امارات، قطر، پاکستان، ترکیه، مصر، اردن و بحرین درباره ایران و توافق صلح صحبت کردم؛ توافق تقریبا تنظیم شده و فقط مونده یه‌سری جزئیات نهایی بین آمریکا، ایران و بقیه کشورا جمع‌بندی بشه،…
+</div>
+
+## drtel — post 58906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان یعنی با قاتل
+
+حضرت سید علی خامنه‌ای 💔، قاتل خانواده‌ی رهبر جدیدمون 💔 قاتل سردار سلیمانی 💔، قاتل سید مقاومت حسن نصرالله💔، قاتل شهید فقید اسماعیل هنیه💔، قاتل دانشمندمون محسن فخری‌زاده💔، قاتل سردار حسین سلامی💔، قاتل سردار محمد باقری غلامعلی رشید💔، قاتل سردار موشکیمون امیرعلی حاجی‌زاده💔، قاتل شهید فریدون عباسی💔، قاتل شهیپ محمدمهدی طهرانچی💔، قاتل سرلشکر شهید احمدرضا ذوالفقاری💔، قاتل سید امیرحسین فقهی💔، قاتل شهید اکبر مطلبی‌زاده💔، قاتل سردار سرافراز عزیزمون علی شمخانی💔، قاتل فرمانده بی‌بدیلمون محمد پاکپور💔، قاتل سرلشکر عبدالرحیم موسوی💔، قاتل سرتیپ عزیز نصیری‌زاده 💔، قاتل عزیز اطلاعاتیمون اسماعیل خطیب💔، قاتل شهیدان غلامرضا سلیمانی 💔 و مجید خادمی💔، قاتل سردار سرافرازی که بر بستن تنگه اصرار داشت یعنی شهید علیرضا تنگسیری 💔، قاتل رئیس جمهور آینده شهید بزرگوار علی لاریجانی 💔، و قاتل شهیدان دیگر مانند محمد کاظمی 💔، حسن محقق 💔، داوود شیخیان 💔، محمدباقر طاهرپور 💔، بهنام رضایی 💔، اسماعیل احمدی 💔، علی‌محمد نائینی 💔، مهدی رستمی شمستان 💔، سعید برجی 💔و منصور صفارپور 💔 و....
+
+توافق کردیم؟😐😐😐😐
+</div>
+
+## drtel — post 58905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نذارید اخبار مذاکره حواستون رو از رسیدگی به خشخاش‌ها پرت کنه، همین الان برین بهش آب بدین
+</div>
+
+## drtel — post 58904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا به‌زودی شاهد صدای بلند توافق تو اکثر نقاط تهران باشیم، تا حد امکان از پنجره‌ها دوری کنید
+</div>
+
+## drtel — post 58903
+
+<div align="center">
+  <img src="telegram/content/drtel_58903_1779578121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+الان تو دفتر بیضی کاخ سفید هستم و دقایقی پیش با رهبرای عربستان، امارات، قطر، پاکستان، ترکیه، مصر، اردن و بحرین درباره ایران و توافق صلح صحبت کردم؛
+توافق تقریبا تنظیم شده و فقط مونده یه‌سری جزئیات نهایی بین آمریکا، ایران و بقیه کشورا جمع‌بندی بشه، با نتانیاهو هم حرف زدم، اونم خوب پیش رفت.
+جزئیات نهایی توافق قراره به‌زودی اعلام بشه و تنگه هرمز هم دوباره باز میشه.
+
+@DrTeL
+</div>
+
+## drtel — post 58902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرد حسابی دوتا جنگ تو جوونیت دیدی اوبی بازیا چیه
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 23:28
 ---
 
