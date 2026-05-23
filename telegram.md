@@ -7,6 +7,334 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 19:17
+---
+
+## SoftNetConnect — post 10317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : اگر توافق نکنیم آنها را منفجر میکنم و به جهنم میفرستم
+</div>
+
+## SoftNetConnect — post 10316
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🇺🇸 ترامپ به آکسیوس: شانس توافق ۵۰/۵۰عه و تا یکشنبه راجب اینکه جنگ با ایران رو از سر بگیرم یا نه، تصمیم می‌گیرم.
+</div>
+
+## SoftNetConnect — post 10315
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10315_1779551279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🇺🇸 ترامپ به آکسیوس: شانس توافق ۵۰/۵۰عه و تا یکشنبه راجب اینکه جنگ با ایران رو از سر بگیرم یا نه، تصمیم می‌گیرم.
+</div>
+
+## SoftNetConnect — post 10314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕یک مقام مطلع به تسنیم : گزارش رسانه های عربی در مورد غنی سازی ده ساله ۳.۶ درصد دروغ است در این مرحله هیچ بحثی در مورد هسته ای نخواهد شد
+</div>
+
+## SoftNetConnect — post 10312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕یک مقام مطلع به تسنیم : گزارش رسانه های عربی در مورد غنی سازی ده ساله ۳.۶ درصد دروغ است در این مرحله هیچ بحثی در مورد هسته ای نخواهد شد
+</div>
+
+## SoftNetConnect — post 10311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمی‌فهمم دنبال زیر بغل مارن بعضیا ترامپ دنبال پیروزیه ، جمهوری اسلامی هم شکست نمیپذیره و تسلیم بشو نیست داستان همینقدر ساده است مگر یکی شکست بپذیره توافق بشه
+</div>
+
+## SoftNetConnect — post 10310
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10310_1779551279.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحلیل کارشناسای عرب درباره احتمال حمله
+
+
+🔴سمیر التقی، تحلیلگر سیاسی:
+
+به احتمال زیاد باید تا دوشنبه یا سه‌شنبه صبر کنیم تا تصمیم نهایی ترامپ مشخص بشه.
+
+
+🔴مهند العزاوی:
+ترامپ گزینه ایی جز حمله نظامی نداره و ضربه نهاییو بین دوشنبه تا جمعه میزنه
+</div>
+
+## SoftNetConnect — post 10309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طی ۲۴ساعت گذشته پایدارچی ها حملات شدیدی علیه پزشکیان انجام دادن و طبق شنیده‌ها دنبال استعفای اون هستن
+</div>
+
+## SoftNetConnect — post 10308
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10308_1779551282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 تعداد زیادی از هواپیماهای نیروی هوایی ایالات متحده در حال حاضر از خاورمیانه به سمت اروپا در حال حرکت هستند؛این شامل 2 هواپیمای سوخت‌رسان و 6 هواپیمای ترابری می‌شود
+
+آیا برای حمله است؟
+</div>
+
+## SoftNetConnect — post 10307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕العربیه: ایران پیشنهاد داده تنگه هرمز بدون عوارض باز بشه شرط اینکه دارایی‌های بلوکه شده به ایران برگرده.
+
+همچنین ایران خواستار حق غنی سازی محدود شده!
+</div>
+
+## SoftNetConnect — post 10305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مذاکره‌کنندگان آمریکا و ایران طبق گزارش فایننشال تایمز به توافقی نزدیک شده‌اند که آتش‌بس را برای ۶۰ روز دیگر تمدید می‌کند. این توافق میانجی‌گری‌شده شامل بازگشایی تدریجی تنگه هرمز، آغاز مذاکرات درباره ذخایر اورانیوم غنی‌شده ایران، کاهش محدودیت‌ها بر بنادر…
+</div>
+
+## SoftNetConnect — post 10304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مذاکره‌کنندگان آمریکا و ایران طبق گزارش فایننشال تایمز به توافقی نزدیک شده‌اند که آتش‌بس را برای ۶۰ روز دیگر تمدید می‌کند.
+
+این توافق میانجی‌گری‌شده شامل بازگشایی تدریجی تنگه هرمز، آغاز مذاکرات درباره ذخایر اورانیوم غنی‌شده ایران، کاهش محدودیت‌ها بر بنادر ایران، کاهش تحریم‌ها و آزادسازی مرحله‌ای دارایی‌های بلوکه‌شده تهران در خارج از کشور خواهد بود
+</div>
+
+## SoftNetConnect — post 10303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نقشه برگزاری امتحانات داخلی مدارس کشور که الان لرستان هم غیر حضوری شد
+</div>
+
+## SoftNetConnect — post 10302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جمهوری اسلامی با میانجی‌گری پاکستان به یک تفاهم اولیه با آمریکا رسیده: 
+1️⃣توقف جنگ 
+2️⃣باز شدن تنگه هرمز 
+3️⃣خروج نیروهای آمریکایی از منطقه. 
+🔴فعلاً موضوع هسته‌ای تو این توافق نیست و قرار شده بعد از ۳۰ روز مذاکرات هسته‌ای جداگونه شروع بشه.
+</div>
+
+## SoftNetConnect — post 10301
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10301_1779551282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸مارکو روبیو درباره ایران:
+
+ممکنه امروز خبرهایی بیاد... ممکنه هم نیاد. امیدوارم بیاد. ولی هنوز مطمئن نیستم بیاد 
+🦐
+</div>
+
+## SoftNetConnect — post 10300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جمهوری اسلامی با میانجی‌گری پاکستان به یک تفاهم اولیه با آمریکا رسیده:
+
+
+1️⃣توقف جنگ
+
+2️⃣باز شدن تنگه هرمز
+
+3️⃣خروج نیروهای آمریکایی از منطقه.
+
+
+🔴فعلاً موضوع هسته‌ای تو این توافق نیست و قرار شده بعد از ۳۰ روز مذاکرات هسته‌ای جداگونه شروع بشه.
+</div>
+
+## SoftNetConnect — post 10299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸مارکو روبیو: مقداری پیشرفت در مذاکرات با ایران حاصل شده است.
+
+همچنین این احتمال وجود دارد که آمریکا طی روزهای آینده دربارهٔ ایران چیزی برای اعلام داشته باشد.
+</div>
+
+## SoftNetConnect — post 10298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یکی از مقام های ارشد جمهوری اسلامی در مذاکرات :
+
+ما به تفاهم‌نامه‌ای با واسطه پاکستانی دست یافته‌ایم و منتظر پاسخ آمریکایی‌ها هستیم (مواردی که ترامپ قبلاً رد کرده بود)
+
+تفاهم‌نامه شامل پایان جنگ، رفع محاصره، باز کردن تنگه هرمز و خروج نیروهای آمریکایی از منطقه جنگ است.
+
+تفاهم‌نامه شامل مسائل هسته‌ای نمی‌شود زیرا پیچیده است و نیاز به زمان کافی برای مذاکره دارد.
+
+پس از ۳۰ روز از توافق، می‌توان درهای مذاکرات هسته‌ای را باز کرد.
+</div>
+
+## drtel — post 58885
+
+<div align="center">
+  <img src="telegram/content/drtel_58885_1779551284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 پزشکیان: چند روز پیش یه دیدار 2 ساعت و نیمه با مجتبی خامنه‌ای داشتم؛ سادگی، تواضع، صمیمیت و احترام متقابل از مهمترین صفات ایشون تو این جلسه بود. @DrTeL
+</div>
+
+## drtel — post 58884
+
+<div align="center">
+  <a href="telegram/content/drtel_58884_1779551284.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 مارکو روبیو، وزیر خارجه آمریکا : درباره ایران یه مقدار پیشرفت به دست اومده!
+ممکنه امروز خبرهایی منتشر بشه، شاید هم نه؛ امیدوارم بشه، ولی مطمئن نیستم.
+هنوز کارها و مذاکرات در جریانه. این احتمال وجود داره که چه امروز، چه فردا یا طی چند روز آینده، حرفی واسه گفتن داشته باشیم.
+ایران نباید سلاح هسته‌ای داشته باشه و اورانیوم غنی‌شده رو هم تحویل بده و هیچ عوارضی از تنگه نگیره، ترامپ همیشه اینارو میگه.
+درکل امیدواریم از راه دیپلماتیک بتونیم به نتیجه برسیم.
+
+@DrTeL
+</div>
+
+## drtel — post 58883
+
+<div align="center">
+  <a href="telegram/content/drtel_58883_1779551286.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو طفلک هم انقد با ترامپ نشست و برخاست داشته کصخل شده:
+
+ممکنه امروز بعدا خبری بشه الان خبری برات ندارم ولی ممکنه یه خبری باشه یکم دیگه امیدوارم که باشه ولی ممکنه هم نباشه، ولی هنوز مطمئن نیستم.
+
+@DrTeL
+</div>
+
+## drtel — post 58881
+
+<div align="center">
+  <img src="telegram/content/drtel_58881_1779551287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴راجر ویکر | Roger Wicker سناتور جمهوری‌خواه آمریکا:
+
+ما تو نقطه‌ای هستیم که میراث ترامپ رو مشخص می‌کنه؛
+ترامپ غریزه‌ش اینه که کار ایران رو تموم کنه، ولی دارن بد مشورتش می‌دن که بره سر یه معامله بی‌ارزش.
+باید به ارتش آمریکا اجازه بده بره قابلیت‌های نظامی ایران رو کامل نابود کنه و تنگه هرمز رو باز کنه.
+اگه باز دنبال توافق با این رژیم باشه، فقط ضعیف به نظر می‌رسیم. باید کاری که شروع کردیم رو تموم کنیم.
+دیگه وقت حرف زدن تموم شده، وقت عمله.
+
+@DrTeL
+</div>
+
+## drtel — post 58880
+
+<div align="center">
+  <img src="telegram/content/drtel_58880_1779551288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو میگه مطالبه گری رو باید معنا کنیم اقا پسرای گل
+
+اقا پسر گل :
+</div>
+
+## drtel — post 58877
+
+<div align="center">
+  <a href="telegram/content/drtel_58877_1779551289.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جدیدا دانش آموزان استان‌هایی که امتحانات‌شون حضوریه، می‌ریزن جلو آموزش و پرورش منطقه و میگن ما فقط مجازی امتحان میدیم؛
+
++ اتفاقا جواب هم داده و تا الان این استان‌ها مجازی شده :
+
+- یزد
+- مرکزی
+- گیلان
+- کهگیلویه و بویراحمد
+- کرمان
+
+@DrTeL
+</div>
+
+## drtel — post 58876
+
+<div align="center">
+  <img src="telegram/content/drtel_58876_1779551291.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+
+ایالاتِ متحده‌ی خاورمیانه؟
+
+@DrTeL
+</div>
+
+## drtel — post 58875
+
+<div align="center">
+  <a href="telegram/content/drtel_58875_1779551292.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 آمریکا یسری اسناد و مدارک از وجود اشیای ناشناس تو آسمون منتشر کرده که همشون رو تو سایت زیر می‌تونید ببينيد. https://www.dvidshub.net/search/?q=uap&view=grid&sort=publishdate @DrTeL
+</div>
+
+## drtel — post 58874
+
+<div align="center">
+  <img src="telegram/content/drtel_58874_1779551293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه اعتماد : رفع قطعی اینترنت این هفته مصوب میشه.
+
++ این به این معنی نیست که این هفته اینترنت‌ها برمیگرده؛ صرفا تصویب میکنن که قطع اینترنت کار بدیه🎀 (یه چی تو مایه‌های محکوم کردنِ سازمان ملله).
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 15:15
 ---
 
