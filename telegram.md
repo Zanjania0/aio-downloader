@@ -7,6 +7,371 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 23:28
+---
+
+## SoftNetConnect — post 10369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸سناتور لیندسی گراهام: اگه با ایران توافق کنیم فقط بخاطر اینه که چون فهمیدیم نمی‌تونیم تنگه هرمز رو از دست ایران حفظ کنیم و ایران هنوز هم میتونه زیرساخت‌های نفتی خلیج فارس رو نابود کنه؛ یعنی اون‌وقت ایران به‌عنوان قدرت غالب منطقه شناخته میشه و همه مجبور…
+</div>
+
+## SoftNetConnect — post 10368
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10368_1779566317.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸سناتور لیندسی گراهام:
+
+اگه با ایران توافق کنیم فقط بخاطر اینه که چون فهمیدیم نمی‌تونیم تنگه هرمز رو از دست ایران حفظ کنیم و ایران هنوز هم میتونه زیرساخت‌های نفتی خلیج فارس رو نابود کنه؛ یعنی اون‌وقت ایران به‌عنوان قدرت غالب منطقه شناخته میشه و همه مجبور میشن باهاش دیپلماتیک کنار بیان.
+
+اینکه ایران بتونه همیشه تنگه هرمز رو به‌هم بریزه و همزمان توان ضربه سنگین به نفت خلیج فارس رو داشته باشه، موازنه قدرت منطقه رو کامل عوض میکنه و در آینده واسه اسرائیل تبدیل به کابوس میشه.
+
+من شخصاً قبول ندارم که نشه جلوی توان ایران رو گرفت یا منطقه نتونه از خودش در برابر قدرت نظامی ایران دفاع کنه. باید خیلی حواسمون باشه که این قضیه رو خراب نکنیم.
+</div>
+
+## SoftNetConnect — post 10367
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت اتاق جنگ اسرائیل: 
+⌛️
+</div>
+
+## SoftNetConnect — post 10366
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10366_1779566317.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت اتاق جنگ اسرائیل: 
+⌛️
+</div>
+
+## SoftNetConnect — post 10365
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10365_1779566317.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+📞
+🇮🇱ترامپ و نتانیاهو هنوز درحال گفتگو تلفنی هستند
+</div>
+
+## SoftNetConnect — post 10364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پرواز گسترده جنگنده های آمریکایی در نزدیکی مرز ایران
+</div>
+
+## SoftNetConnect — post 10363
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10363_1779566318.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+📞
+🇮🇱ترامپ و نتانیاهو هم اکنون درحال گفتگو تلفنی هستند
+</div>
+
+## SoftNetConnect — post 10362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اغلب جمهوری خواهان آمریکا خواهان جنگ شدن
+</div>
+
+## SoftNetConnect — post 10361
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10361_1779566319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍ضربات متعدد موشکی و پهبادی سپاه به گروهک کومله در کردستان عراق
+</div>
+
+## SoftNetConnect — post 10360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 فاکس نیوز: تماس ترامپ با رهبرای منطقه بسیار مثبت بود و اونا از ترامپ بابت قدم‌هایی که تو مذاکرات برداشت، تشکر کردن.
+</div>
+
+## SoftNetConnect — post 10359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 فاکس نیوز: تماس ترامپ با رهبرای منطقه بسیار مثبت بود و اونا از ترامپ بابت قدم‌هایی که تو مذاکرات برداشت، تشکر کردن.
+</div>
+
+## SoftNetConnect — post 10358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه یادتون باشه یک شب قبل جنگ خبر توافق تیتر تمام خبرگزاری ها بود که حتی عراقچی می‌گفت مذاکرات به حرفه ای ترین و مثبت ترین حالت ممکن رسیده
+
+پس گول اخبار رو نخورید
+</div>
+
+## SoftNetConnect — post 10357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۴ اسرائیل : چند منبع معتبر تأیید می‌کنند که ایران با برخی از درخواست‌های کلیدی ایالات متحده موافقت کرده است و کمتر از ۲۴ ساعت دیگر اعلام توافق انجام خواهد شد که به تهران چند ماه فرصت می‌دهد تا کاملاً تسلیم شود.
+</div>
+
+## SoftNetConnect — post 10356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پویا زراعتی :
+
+اخباری که درباره‌ی مذاکرات و احتمال توافق موقت میاد بیرون، پایه‌ای نداره و «هنوز هیچی معلوم نیست.
+</div>
+
+## SoftNetConnect — post 10355
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10355_1779566319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍حملات موشکی و پهبادی سپاه به مقر کومله در کردستان عراق
+</div>
+
+## SoftNetConnect — post 10354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 العربیه: تنها چندساعت تا نهایی شدن توافق میان ایران و آمریکا فاصله داریم.
+</div>
+
+## SoftNetConnect — post 10353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ با سران منطقه گفتگو کرد
+
+
+🆕آکسیوس:
+ترامپ روز شنبه با رهبران عربستان سعودی، امارات متحده عربی، قطر، مصر، ترکیه و پاکستان تماس تلفنی داشت.
+
+به گفته منبعی که از جزئیات این تماس مطلع شده، چند تن از این رهبران عرب از ترامپ خواستند که توافق را بپذیرد.
+
+معلومه کیا : مصر ، ترکیه ، قطر ، پاکستان
+</div>
+
+## SoftNetConnect — post 10352
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10352_1779566320.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+📞
+🇮🇱ترامپ امشب با نتانیاهو هم گفتگو تلفنی خواهد کرد
+</div>
+
+## SoftNetConnect — post 10351
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10351_1779566321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴جت های آمریکایی بر فراز آسمان کردستان عراق در حال پرواز هستند
+</div>
+
+## SoftNetConnect — post 10350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🪙 تتر هم با خبر مذاکرات ریزشی شده و به قمیت ۱۷۴.۹۹۹ هزار تومان رسیده
+</div>
+
+## drtel — post 58901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش ساعت شنیه تموم شده
+
+نزنن امشب ؟😐
+</div>
+
+## drtel — post 58900
+
+<div align="center">
+  <img src="telegram/content/drtel_58900_1779566322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اکانت اتاق جنگ اسرائیل باز حوصلش سر رفت و یه ساعت شنی
+⏳ پست کرد:
+
+@DrTeL
+</div>
+
+## drtel — post 58899
+
+<div align="center">
+  <a href="telegram/content/drtel_58899_1779566322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جدیدا دانش آموزان استان‌هایی که امتحانات‌شون حضوریه، می‌ریزن جلو آموزش و پرورش منطقه و میگن ما فقط مجازی امتحان میدیم؛ + اتفاقا جواب هم داده و تا الان این استان‌ها مجازی شده : - یزد - مرکزی - گیلان - کهگیلویه و بویراحمد - کرمان @DrTeL
+</div>
+
+## drtel — post 58898
+
+<div align="center">
+  <img src="telegram/content/drtel_58898_1779566323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد عدم توانایی مردم واسه خرید ماشین، حالا دیگه گرفتن گواهینامه هم داره به یه آرزو تبدیل میشه؛
+
+هزینه دریافت گواهینامه رانندگی با افزایش 56 درصدی نسبت به قبل، ناقابل 15 میلیون تومن شد.
+
+@DrTeL
+</div>
+
+## drtel — post 58897
+
+<div align="center">
+  <img src="telegram/content/drtel_58897_1779566324.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز : یه مقام پاکستانی که تو مذاکرات حضور داره، به ما گفته؛ توافق موقتی‌ای که الان تو مراحل آخرشه، تقریباً همه‌چیزو پوشش میده و هدفش تموم کردن کامل جنگه. @DrTeL
+</div>
+
+## drtel — post 58896
+
+<div align="center">
+  <img src="telegram/content/drtel_58896_1779566325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید | آکسیوس:
+طبق گفته یه مقام آمریکایی که تو جریان مذاکرات بوده؛
+
+آمریکا و ایران خیلی به توافق نزدیک شدن و فقط سر نوشتن و مدل بیانِ چند تا بند هنوز یه‌سری ریزه‌کاری مونده.
+
+@DrTeL
+</div>
+
+## drtel — post 58895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ و آخوند مذاکره کنند ابلهان باور کنند
+</div>
+
+## drtel — post 58894
+
+<div align="center">
+  <img src="telegram/content/drtel_58894_1779566325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لیندسی گراهام، سناتور نزدیک به ترامپ :
+اگه آخرش با ایران توافق کنیم فقط بخاطر اینه که چون فهمیدیم نمی‌تونیم تنگه هرمز رو از دست ایران حفظ کنیم و ایران هنوزهم می‌تونه زیرساخت‌های نفتی خلیج فارس رو نابود کنه؛
+اون‌وقت یعنی ایران به‌عنوان قدرت غالب منطقه شناخته میشه و همه مجبور میشن باهاش دیپلماتیک کنار بیان.
+اینکه ایران بتونه همیشه تنگه هرمز رو به‌هم بریزه و همزمان توان ضربه سنگین به نفت خلیج فارس رو داشته باشه، موازنه قدرت منطقه رو کامل عوض می‌کنه و در آینده واسه اسرائیل تبدیل به کابوس میشه.اگه واقعاً این حرفا درست باشه، پس آدم می‌مونه اصلاً چرا جنگ رو شروع کردیم. من شخصاً قبول ندارم که نشه جلوی توان ایران رو گرفت یا منطقه نتونه از خودش در برابر قدرت نظامی ایران دفاع کنه.
+باید خیلی حواسمون باشه که این قضیه رو خراب نکنیم.
+
+@DrTeL
+</div>
+
+## drtel — post 58893
+
+<div align="center">
+  <a href="telegram/content/drtel_58893_1779566326.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨واشنگتن پست : احتمالاً آمریکا و ایران تا عصر فردا یه توافق صلح اعلام کنن که هدفش تموم کردن درگیری‌ها تو همه جبهه‌هاست. متن اولیه توافق، صبح امروز نهایی شده و فرستادنش واسه تأیید نهایی دست رهبران دو کشور. تو روند تأیید این توافق هم اسم قالیباف، جی‌دی ونس،…
+</div>
+
+## drtel — post 58892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا فریبم داد
+ایران عذابم میدهد
+از خرداد می‌هراسم
+</div>
+
+## drtel — post 58890
+
+<div align="center">
+  <a href="telegram/content/drtel_58890_1779566326.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨واشنگتن پست :
+احتمالاً آمریکا و ایران تا عصر فردا یه توافق صلح اعلام کنن که هدفش تموم کردن درگیری‌ها تو همه جبهه‌هاست.
+متن اولیه توافق، صبح امروز نهایی شده و فرستادنش واسه تأیید نهایی دست رهبران دو کشور.
+تو روند تأیید این توافق هم اسم قالیباف، جی‌دی ونس، استیو ویتکاف و جرد کوشنر مطرح شده.
+
+@DrTeL
+</div>
+
+## drtel — post 58889
+
+<div align="center">
+  <a href="telegram/content/drtel_58889_1779566326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این ویدیو رو هرجای دنیا به‌غیر از ایران و کشور‌های اطرافش ببری نشون بدی بهت به احتمال 98 درصد پناهندگی دائم میدن؛
+
+
+گرفتن وسط مراسم عروسی دو جان‌فدا که باهم تو تجمعات شبانه آشنا شدن، کلاشینکف آوردن و دادن دست عروس که تیرهوایی در کنه…
+
+
+@DrTeL
+</div>
+
+## drtel — post 58888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+■ بدترین حس وقتیه که میخوای سریع وارد سایت شی، بازی شروع شده، ولی VPN وصل نمیشه یا سایت نصفه لود میشه. 
+😑
+
+- دیگه لازم نیست برای هر بار ورود به سایت VPN عوض کنی یا منتظر لود شدن بمونی؛
+
+📌در ربات تلگرام وینکوبت هم بازی‌ها و کازینو اجرا میشن، هم پیش‌بینی و واریز و برداشت مستقیم از داخل همون ربات انجام میشه:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+</div>
+
+## drtel — post 58886
+
+<div align="center">
+  <img src="telegram/content/drtel_58886_1779566327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری اسرائیل‌هیوم | israel HAYOM:
+
+اگه مجتبی کشته بشه:
+ایران ممکنه کاملاً به هم بریزه و هرج‌ومرج بشه.
+شاید جناح‌های نسبتاً معتدل‌تر (یا کمتر تندرو) بتونن قدرت بگیرن و یه توافق هسته‌ای واقعی ببندن.
+اگه بذارن زنده بمونه:
+هنوز یه چهره‌ای به اسم «خامنه‌ای» هست که رژیم باهاش خودش رو سرپا نگه داره.
+مجتبی ضعیف و فاسده، ولی هنوز سیستم یه جورایی کار می‌کنه.
+خطر اینه که دوباره یه توافق الکی مثل برجام اوباما ببندن که فقط روی کاغذ خوبه و بعداً تموم می‌شه.
+‌الان بین آمریکا و اسرائیل داره سر این بحث میشه که آیا باید مجتبی خامنه‌ای رو هم کشت؟
+
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 19:17
 ---
 
