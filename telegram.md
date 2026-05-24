@@ -7,6 +7,292 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 03:13
+---
+
+## SoftNetConnect — post 10506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایرانسل آنتنش چندین بار پرید.
+</div>
+
+## SoftNetConnect — post 10505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📉
+🛢نفت خام برنت هم با خبر مذاکرات به ۹۸.۶۶ دلار رسید
+</div>
+
+## SoftNetConnect — post 10504
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10504_1779666207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴امروز آمریکا با A-10 مواضع حشدالشعبی تیرباران کرده
+</div>
+
+## SoftNetConnect — post 10503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴امروز آمریکا با A-10 مواضع حشدالشعبی تیرباران کرده
+</div>
+
+## SoftNetConnect — post 10502
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10502_1779666208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پرواز جنگنده های آمریکایی/اسرائیلی بر فراز عراق
+</div>
+
+## SoftNetConnect — post 10501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پرواز جنگنده های آمریکایی/اسرائیلی بر فراز عراق
+</div>
+
+## SoftNetConnect — post 10500
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10500_1779666209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂به نقل CBS ارزیابی‌های اطلاعاتی آمریکا میگن مجتبی خامنه‌ای تو یه مکان فوق‌امنیتی و نامشخص مخفی شده و ارتباطش با بیرون خیلی محدوده!
+
+ظاهراً پیام‌ها از طریق یه شبکه پیچیده از پیک‌ها رد و بدل میشه که هم پیدا کردن موقعیتش رو سخت کرده هم روند تصمیم‌گیری داخل حکومت رو کند کرده.
+
+حتی مذاکره‌کننده‌های ایرانی هم برای هماهنگی داخلی مشکل دارن و همین باعث شده جواب دادن به پیشنهادهای آمریکا و مذاکرات کلی خیلی طول بکشه.
+گفته شده بعد از عملیات‌های اطلاعاتی آمریکا و اسرائیل تو جنگ، بخش بزرگی از فرمانده‌ها و مقامات ارشد ایران شناسایی شدن؛ برای همین خیلی از مسئول‌ها داخل پناهگاه‌های امنیتی موندن و ارتباطاتشون رو به حداقل رسوندن.
+نکته مهم اینه که حتی خیلی از مقام‌های بلندپایه ایران هم نمی‌دونن محل حضور رهبر کجاست و دسترسی مستقیم بهش ندارن.
+
+دستورها هم فقط از طریق واسطه‌های مورد اعتماد منتقل میشه و مشخص می‌کنن روی چه موضوعاتی میشه مذاکره کرد و چه چیزهایی خط قرمزه.
+</div>
+
+## SoftNetConnect — post 10499
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10499_1779666209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 
+🇺🇸 یک هواپیمای جاسوسی (AWACS) بوئینگ E-3 سنتری نیروی هوایی ایالات متحده نیز بر فراز خلیج فارس در حال عملیات است.
+</div>
+
+## SoftNetConnect — post 10498
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10498_1779666210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیوِ پشم ریزون از زاویه نزدیک، حمله دیشب روسیه به اوکراین
+😱
+</div>
+
+## SoftNetConnect — post 10497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴علی قلهکی :
+
+تماسِ نتانیاهو با ترامپ کافی بود تا سیاستِ جدید آمریکا به «بدون گرد و غبار (خروجِ ۴۰۰کیلوگرم‌ اورانیوم)، بدونِ دلار (مُنتفی‌شدنِ آزادسازی اموال بلوکه شده ایران)» _No Dust, No Dollars_ بازگردد!
+آمریکا تصمیم گرفته دلاری از اموال بلوکه شده کشور را تا به «خواسته‌هایِ هسته ای آمریکا» تَن ندهیم، آزاد نکند!
+از طرفِ دیگر ایران اخیرا خطِ قرمزِ غنی‌سازی را از ۳.۶۷ ٪ به ۲۰٪ ارتقا داده و ۴۰۰ کیلوگرم اورانیوم هم از ایران خارج نمی‌شود!
+ایران احتمالا با وضعیتِ بلاتکلیفِ «رفع محاصره تنگه توسط آمریکا»، «عدم آزادسازیِ اموال بلوکه شده» و «خواست‌های حداکثریِ هسته‌ای آمریکا»، «تفاهم اسلام آباد» را امضا نکند!
+﻿
+</div>
+
+## SoftNetConnect — post 10496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇮🇱خبرهایی بگوش میرسه که تماس های نتانیاهو مانع توافق شده و شرایط دوباره به فروپاشی توافق نزدیکه
+</div>
+
+## SoftNetConnect — post 10495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇮🇱خبرهایی بگوش میرسه که تماس های نتانیاهو مانع توافق شده و شرایط دوباره به فروپاشی توافق نزدیکه
+</div>
+
+## SoftNetConnect — post 10494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴بازار دوباره به حالت جنگی بازگشت و تتر از ۱۶۵ هزار تومان به ۱۷۵ هزار تومن رسید
+</div>
+
+## SoftNetConnect — post 10492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مثل اینکه رهبر حزب الله فراخوان برای سرنگونی حکومت لبنان داده و آمریکا گفته در صورت این اتفاق با حزب الله برخورد میکنه
+</div>
+
+## SoftNetConnect — post 10491
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10491_1779666211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ورودی پایگاه موشکی لارستان تعمیر شد، پایگاه به بهره برداری رسید
+</div>
+
+## SoftNetConnect — post 10490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به شبکه فاکس‌نیوز گفت: ممکن است ترامپ به ایران یک هفته دیگر وقت بدهد تا بتوانند به یک توافق قابل قبول برسند.
+</div>
+
+## SoftNetConnect — post 10489
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به شبکه فاکس‌نیوز گفت:
+
+ممکن است ترامپ به ایران یک هفته دیگر وقت بدهد تا بتوانند به یک توافق قابل قبول برسند.
+</div>
+
+## SoftNetConnect — post 10488
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕نیویورک‌پست: احتمال دستیابی به توافق بین آمریکا و ایران به‌طور قابل‌توجهی کاهش پیدا کرده.
+
+۲۴ ساعت بعد از اینکه هردوطرف موافقت کردن که از برخی خواسته‌های حداکثری‌شون کوتاه بیان، فشار شدید اسرائیلی‌ها باعث شد لخت ترامپ به‌طور چشمگیری تغییر بده. تفاهم‌نامه پاکستانی‌ها درحال فروپاشیه، مگر اینکه یکی از طرفین عقب‌نشینی کنه.
+</div>
+
+## SoftNetConnect — post 10487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+🆕میدل ایست : گزارش‌ها حاکیه که بخش زیادی از پیشرفتی که از جمعه توی مذاکرات به‌دست اومده بود، حالا از بین رفته؛ چون آمریکا روی چند موضوع کلیدی نظرش رو تغییر داده.
+</div>
+
+## drtel — post 58964
+
+<div align="center">
+  <a href="telegram/content/drtel_58964_1779666212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت این روز‌های اینستاگرام فارسی
+📱 به شدت ترسناک شده؛
+
+
+ملت یه جوری بخاطر ویو ریختن بیرون که آدم دو دقیقه میره اکسپلور فکر میکنه داره تو صفحات پورن‌هاب میچرخه🔞...
+
+ارزش دانلود برای پسران؛ خیلی بالا
+ارزش دانلود برای خانم‌ها؛ متوسطِ رو به بالا
+@DrTeL
+</div>
+
+## drtel — post 58963
+
+<div align="center">
+  <a href="telegram/content/drtel_58963_1779666213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- همه اون لحظه‌ای که سایت نصفه لود میشه و VPN قاطی میکنه رو تجربه کردیم، مخصوصاً وقتی وسط بازی یا ثبت پیش‌بینی باشی. 
+😑
+
+- ربات رسمی تلگرام وینکوبت کارو راحت و ورود به سایت رو آسون کرده:👇
+
+-
+🤖 @Wincobet_bot
+-
+🤖 @Wincobet_bot
+
+- برای کسایی که بیشتر وقتشون توی تلگرامه، خیلی کاربردیه.
+</div>
+
+## drtel — post 58962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نامردا حداقل بخاطر اینایی که هرشب بخاطر شماها اومدن بیرون مذاکره نکنید
+
+@DrTeL
+</div>
+
+## drtel — post 58961
+
+<div align="center">
+  <img src="telegram/content/drtel_58961_1779666214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 قلهکی، فعال رسانه‌ای اصولگرا: دلیل اینکه تفاهم اسلام آباد هنوز امضا نشده اینه که؛ نتانیاهو زنگ زده به ترامپ و پُرش کرده، آمريکا هم زده زیرش و گفته تا قبل اینکه 400 کیلو اورانیوم رو تحویل ندید، خبری از پول‌های بلوکه شده نیست! @DrTeL
+</div>
+
+## drtel — post 58960
+
+<div align="center">
+  <img src="telegram/content/drtel_58960_1779666215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 قلهکی، فعال رسانه‌ای اصولگرا: دلیل اینکه تفاهم اسلام آباد هنوز امضا نشده اینه که؛
+
+نتانیاهو زنگ زده به ترامپ و پُرش کرده، آمريکا هم زده زیرش و گفته تا قبل اینکه 400 کیلو اورانیوم رو تحویل ندید، خبری از پول‌های بلوکه شده نیست!
+
+@DrTeL
+</div>
+
+## drtel — post 58959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اولین تصویر منتشر شده از شخصی که دیشب اطراف کاخ سفید شروع به تیراندازی کرد و درنهایت کشته شد؛ این شخص 21 ساله به اسم "نصیر بِست" که مشکلات روانی داشت، معتقد بود "عیسی مسیحه". @DrTeL | New York Post
+</div>
+
+## drtel — post 58958
+
+<div align="center">
+  <a href="telegram/content/drtel_58958_1779666215.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فوری : هم اکنون بیرون کاخ سفید حدود 20 تا 30 تا تیر شلیک شده! سرویس مخفی آمریکا هم سریع خبرنگارایی که تو محوطه کاخ سفید بودن رو جمع کرده و برده داخل اتاق کنفرانس خبری تا ازشون محافطت کنه. @DrTeL | NBC News
+</div>
+
+## drtel — post 58957
+
+<div align="center">
+  <img src="telegram/content/drtel_58957_1779666216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ، تصویری از یه بمب همراه این نوشته:
+
+از شما بابت توجهتون به این موضوع ممنونم.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 23:28
 ---
 
