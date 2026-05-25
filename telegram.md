@@ -7,6 +7,387 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 01:50
+---
+
+## SoftNetConnect — post 10678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اپلیکیشن های روبیکا ، بله ، سروش و بلو بانک مختل شدن
+</div>
+
+## SoftNetConnect — post 10677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آبی از تو کله زرد کصخل پلشت گرم نمیشه
+
+
+🔴باراک راوید: پست جدید ترامپ در بحبوحه تنش‌های اخیر، نشانه‌ای از نرمش آمریکا تو مواضعش بود که ممکنه به ایران اجازه بده اورانیوم رو بدون خروج از کشور، تو همون ایران رقیق سازی کنه. این قدمی مثبت برای مذاکراته.
+</div>
+
+## SoftNetConnect — post 10676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+🚨تصاویر ماهواره‌ای نشون میدن جزیره خارک بمبارون شده و چند لکه آتش پیداست
+</div>
+
+## SoftNetConnect — post 10675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+🚨تصاویر ماهواره‌ای نشون میدن جزیره خارک بمبارون شده و چند لکه آتش پیداست
+</div>
+
+## SoftNetConnect — post 10674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ در تروث سوشال: اورانیوم غنی‌شده (گرد هسته‌ای!) یا باید فوراً به ایالات متحده تحویل داده شود تا به کشور منتقل و نابود گردد، یا ترجیحاً با هماهنگی و همکاری جمهوری اسلامی ایران، همان‌جا در محل یا در مکانی دیگر که قابل قبول باشد، نابود شود؛ به‌طوری که…
+</div>
+
+## SoftNetConnect — post 10673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خود سپاه میگه نیروهای ما کشته شدن چنلای عربی دارن میگن غیرنظامی بودن
+😡
+</div>
+
+## SoftNetConnect — post 10672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕 منبع ایرانی به خبرنگار الجزیره: تیراندازی سنگینی که نزدیک بندرعباس شنیده شد، پس از آن رخ داد که سپاه پاسداران یک شناور را در دریا هدف قرار داد و در پی آن، جنگنده‌های آمریکایی به قایق‌های نیروی دریایی سپاه در خلیج فارس حمله کردند.
+</div>
+
+## SoftNetConnect — post 10671
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10671_1779747626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ در تروث سوشال:
+اورانیوم غنی‌شده (گرد هسته‌ای!) یا باید فوراً به ایالات متحده تحویل داده شود تا به کشور منتقل و نابود گردد، یا ترجیحاً با هماهنگی و همکاری جمهوری اسلامی ایران، همان‌جا در محل یا در مکانی دیگر که قابل قبول باشد، نابود شود؛
+به‌طوری که کمیسیون انرژی اتمی یا نهاد معادل آن، شاهد این فرایند و رویداد باشد.
+</div>
+
+## SoftNetConnect — post 10670
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10670_1779747627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+♨️ تصاویر ماهواره‌ای خبر از چندین لکه آتش سوزی در جزیره خارک میدن
+</div>
+
+## SoftNetConnect — post 10669
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10669_1779747628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕رسانه های داخلی و همینطور ژئوپلیتیک واچ خبر از حمله به جزیره لارک میدن منتظر تاییدیه اصلی
+</div>
+
+## SoftNetConnect — post 10668
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10668_1779747629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فعالیت سوخت رسانا همین الان
+</div>
+
+## SoftNetConnect — post 10667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕رسانه های داخلی و همینطور ژئوپلیتیک واچ خبر از حمله به جزیره لارک میدن منتظر تاییدیه اصلی
+</div>
+
+## SoftNetConnect — post 10666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕صابرین نیوز : اسامی شهدای حمله سحرگاه شب گذشته ۴ خرداد در جنوب جزیره لارک
+
+بر اساس اعلام منابع محلی نام سه تن از شهدای حمله دشمن متخاصم آمریکایی-اسرائیلی که تا این لحظه شناسایی شدند به شرح زیر است:
+
+
+🔴شهید عباس اسلامی
+
+🔴شهید قدرت زرنگاری
+
+🔴شهید عبدالرضا گلزاری
+
+گفتنی است تعداد شهدا هنوز مشخص نشده.
+</div>
+
+## SoftNetConnect — post 10665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلاصه خبرهای تأیید شده امشب 
+🚨بندرعباس چهار انفجار و فعالیت شدید پدافند 
+🚨کانال های سپاه و میدل ایست خبر از شهادت چهار سپاهی توسط جنگنده ها آمریکا میده که اینم هنوز باید دید کامل معتبره یا نه
+</div>
+
+## SoftNetConnect — post 10664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلاصه خبرهای تأیید شده امشب
+
+
+🚨بندرعباس چهار انفجار و فعالیت شدید پدافند
+
+
+🚨کانال های سپاه و میدل ایست خبر از شهادت چهار سپاهی توسط جنگنده ها آمریکا میده که اینم هنوز باید دید کامل معتبره یا نه
+</div>
+
+## SoftNetConnect — post 10663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا خبر معتبر نیاد تو این شرایط متشنج جو سازی چنلا خبری نشر نمیدیم کل کشور خب رفت زیر پدافند و بمبارون که
+</div>
+
+## SoftNetConnect — post 10662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فک کنم همون بندر عباس صدا اومده باشه بقیه جوسازی باشه
+</div>
+
+## SoftNetConnect — post 10661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکم دیگه کاخ سفید از رو اصفهان پرواز می‌کنه میرسه به تهران
+</div>
+
+## SoftNetConnect — post 10660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕میدل ایست : دو قایق تندرو نیروی دریایی سپاه پاسداران توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار ملوان کشته شدند
+</div>
+
+## SoftNetConnect — post 10659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴گزارش مردمی خبر از انفجار در قم
+</div>
+
+## drtel — post 59025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بخوابید جشن توافقه
+</div>
+
+## drtel — post 59024
+
+<div align="center">
+  <img src="telegram/content/drtel_59024_1779747630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دووونالد راستشو بگو ، از تَه دل که نقضش نکردی؟
+
+@DrTeL
+</div>
+
+## drtel — post 59023
+
+<div align="center">
+  <img src="telegram/content/drtel_59023_1779747631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+دارم خیلی واضح میگم؛ این اورانیوم غنی‌شده یا تحویل آمریکا داده میشه تا کامل نابودش کنیم، یا با هماهنگی خودِ ایران همونجا یا یه محل مورد تأیید دیگه از بین میره و نهادهای اتمی هم شاهد ماجرا هستن؛
+
+
+این توافق مثل برجام نیست که راه بمب اتم باز بمونه، این‌بار قضیه کاملاً برعکسه.
+
+@DrTeL
+</div>
+
+## drtel — post 59022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری دانشجو :
+جنگنده‌های آمریکا چند شناور ایرانی رو تو جنوب جزیره لارک زدن که تا این لحظه 3 نفر کشته شدن!
+
+- عباس اسلامی
+- قدرت زرنگاری
+- عبدالرضا گلزاری
+
+@DrTeL
+</div>
+
+## drtel — post 59021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غیررسمی :
+
+جنگنده‌های آمریکا به دو قایق تندروی سپاه حمله کردن که باعث کشته شدن 4 نفر شد.
+
+@DrTeL
+</div>
+
+## drtel — post 59020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر بگیر اگه جنگ شده بریم بنزین بزنیم
+</div>
+
+## drtel — post 59019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته رسانه‌های حکومتی؛ باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت! @DrTeL
+</div>
+
+## drtel — post 59018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوثا منو قبل زدن از ایران خارج کنید نمی‌خوام اینجا بمونم
+</div>
+
+## drtel — post 59017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته رسانه‌های حکومتی؛
+باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت!
+
+@DrTeL
+</div>
+
+## drtel — post 59016
+
+<div align="center">
+  <img src="telegram/content/drtel_59016_1779747632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: احتمالا توافق بین آمریکا و ایران، فردا (سه‌شنبه) رسما اعلام میشه. @DrTeL
+</div>
+
+## drtel — post 59015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابر نیست؟
+</div>
+
+## drtel — post 59014
+
+<div align="center">
+  <a href="telegram/content/drtel_59014_1779747633.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارشات؛ از بندرعباس داره صدای توافق میاد
+💥 @DrTeL
+</div>
+
+## drtel — post 59013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس :
+دقایقی پیش مردم تو بندرعباس و حوالی خلیج فارس صدای چند انفجار شنیدن؛ هنوز محل دقیق و منشأ این صداها مشخص نیست.
+
+@DrTeL
+</div>
+
+## drtel — post 59012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوتیف واریز پولای بلوکه شده بود
+</div>
+
+## drtel — post 59011
+
+<div align="center">
+  <a href="telegram/content/drtel_59011_1779747634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارشات؛
+از بندرعباس داره صدای توافق میاد
+💥
+
+@DrTeL
+</div>
+
+## drtel — post 59010
+
+<div align="center">
+  <img src="telegram/content/drtel_59010_1779747634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آموزش و پرورش: به شایعات فضای مجازی گوش نکنید؛ تا تیر ماه صبر می‌کنیم و اگه شرایط فراهم باشه، امتحانات نهایی پایه یازدهم و دوازدهم به صورت حضوری برگزار میشن. @DrTeL
+</div>
+
+## drtel — post 59009
+
+<div align="center">
+  <a href="telegram/content/drtel_59009_1779747635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون اوباما خطاب به ترامپ :
+
+@FUTBALLI18
+</div>
+
+## drtel — post 59008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره:
+
+احتمالا توافق بین آمریکا و ایران، فردا (سه‌شنبه) رسما اعلام میشه.
+
+@DrTeL
+</div>
+
+## drtel — post 59007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشتی چطور میشه که پزشکیان اختیار اینو نداشته باشه بعد گرونی ها تقصیر اون باشه؟
+کصشعر تفت میدنا
+</div>
+
+## drtel — post 59006
+
+<div align="center">
+  <img src="telegram/content/drtel_59006_1779747637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری هم‌میهن: پزشکیان دستور بازگشایی اینترنت بین‌الملل رو صادر کرده. @DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 21:49
 ---
 
