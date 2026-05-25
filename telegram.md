@@ -7,6 +7,358 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 21:49
+---
+
+## SoftNetConnect — post 10593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕آتش بس در لبنان که بالغ بر ۳۰۰ نقض توسط حزب الله لبنان صورت گرفته بود پایان یافت و مقام های اسرائیلی دستور افزایش حملات در جنوب لبنان دادن
+</div>
+
+## SoftNetConnect — post 10592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+🆕ایسنا:
+
+دستور باز شدن اینترنت از فردا اجرا میشه
+</div>
+
+## SoftNetConnect — post 10591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙مراد ویسی: آمریکا ۵ تا هدف داشت ولی به هیچ کدوم نرسید، حالا ببینیم چی میشه
+
+
+🔴غنی سازی و هسته‌ای متوقف نشد
+
+🔴اورانیوم خارج نشد
+
+🔴برد موشک ها محدود نشد
+
+🔴حمایت از نیابتا قطع نشد
+
+🔴تنگه هرمز هم باز نشد
+</div>
+
+## SoftNetConnect — post 10589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱نتانیاهو در بیانیه‌ای اعلام کرد ما به حزب‌الله ضربه‌ای مهلک خواهیم زد. از استقامت ساکنان شمال تقدیر می‌کنم
+</div>
+
+## SoftNetConnect — post 10588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+🆕خبر جدید فارس : دستور برگشت اینترنت به وضعیت قبل از دی‌ماه ۱۴۰۴، چند دقیقه پیش از طرف پزشکیان به وزارت ارتباطات داده شد
+</div>
+
+## SoftNetConnect — post 10587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+🆕 فارس: اینترنت باید با دستور شعام باز بشه و فعلا خبری نیست
+</div>
+
+## SoftNetConnect — post 10586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس خیلی وضعش خرابه
+</div>
+
+## SoftNetConnect — post 10585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+🆕 فارس: اینترنت باید با دستور شعام باز بشه و فعلا خبری نیست
+</div>
+
+## SoftNetConnect — post 10584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+🆕 فارس: اینترنت باید با دستور شعام باز بشه و فعلا خبری نیست
+</div>
+
+## SoftNetConnect — post 10583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕
+🆕 فارس:
+
+اینترنت باید با دستور شعام باز بشه و فعلا خبری نیست
+</div>
+
+## SoftNetConnect — post 10582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴طبق گزارش تایید نشده از شاهدان عینی که به دستمان رسیده است از وقوع یک درگیری نامشخص در محدوده میدان انقلاب تهران در ساعتی قبل خبر می‌دهند. بر اساس این ادعاها، گفته می‌شود منطقه تحت کنترل نیروهای امنیتی قرار گرفته و رفت‌وآمد در برخی مسیرها محدود شده است.…
+</div>
+
+## SoftNetConnect — post 10580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث قبل جنگ هم میگفت توافق حتمی باور نکنید 
+🆕 الحدث به نقل از منابع: ایران آماده‌ست تا اورانیوم با غنای بالا رو از کشور خارج کنه.
+</div>
+
+## SoftNetConnect — post 10579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴طبق گزارش تایید نشده از شاهدان عینی که به دستمان رسیده است از وقوع یک درگیری نامشخص در محدوده میدان انقلاب تهران در ساعتی قبل خبر می‌دهند. بر اساس این ادعاها، گفته می‌شود منطقه تحت کنترل نیروهای امنیتی قرار گرفته و رفت‌وآمد در برخی مسیرها محدود شده است.…
+</div>
+
+## SoftNetConnect — post 10578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕کانال ۱۲ از منابع:
+
+ویتکوف و کوشنر به اسرائیل سفر خواهند کرد تا درباره توافق احتمالی با ایران گفتگو کنند.
+</div>
+
+## SoftNetConnect — post 10577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴طبق گزارش تایید نشده از شاهدان عینی که به دستمان رسیده است از وقوع یک درگیری نامشخص در محدوده میدان انقلاب تهران در ساعتی قبل خبر می‌دهند.
+
+بر اساس این ادعاها، گفته می‌شود منطقه تحت کنترل نیروهای امنیتی قرار گرفته و رفت‌وآمد در برخی مسیرها محدود شده است.
+
+همچنین طبق گفته شاهدان عینی تعداد زیادی جنازه که از ظواهر آنها مشخص بود نیروهای حشد الشعبی بوده اند روی زمین ریخته بود
+
+منتظر خبر تکمیلی ‌
+</div>
+
+## SoftNetConnect — post 10576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕الحدث: وال‌استریت‌ژورنال به نقل از واسطه‌ها، واشنگتن و تهران به مواضع خود در مورد مسائل هسته‌ای و دارایی‌های مسدود شده ، پایبند هستند.
+</div>
+
+## SoftNetConnect — post 10575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث قبل جنگ هم میگفت توافق حتمی باور نکنید 
+🆕 الحدث به نقل از منابع: ایران آماده‌ست تا اورانیوم با غنای بالا رو از کشور خارج کنه.
+</div>
+
+## SoftNetConnect — post 10574
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10574_1779733197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕الحدث:
+وال‌استریت‌ژورنال به نقل از واسطه‌ها، واشنگتن و تهران به مواضع خود در مورد مسائل هسته‌ای و دارایی‌های مسدود شده ، پایبند هستند.
+</div>
+
+## drtel — post 59003
+
+<div align="center">
+  <a href="telegram/content/drtel_59003_1779733198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدئوهای رقص این دختر بچه وِزه مشهدی تو جشن پایان سال مدرسه‌شون حسابی تو فضای مجازی داخلی و خارجی وایرال شده؛
+
+
+تو این بی نتی در مجموع بالای 50 میلیون ویو خورده!
+
+@DrTeL
+</div>
+
+## drtel — post 59002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎ اگه این روزا بخاطر ضعیف بودن اینترنت سایتا سخت لود میشن، ربات تلگرام وینکوبت خیلی کارو راحت کرده:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+بدون اینکه از تلگرام خارج شی میتونی مستقیم وارد بخش بازی‌ها و کازینو بشی، پیش‌بینی ثبت کنی و حتی واریز و برداشت انجام بدی.
+▪︎حالت Mini App داخل تلگرامه و خیلی سبک‌تر و سریع‌تر باز میشه:
+👇
+
+
+🤖 @Wincobet_bot
+</div>
+
+## drtel — post 59001
+
+<div align="center">
+  <img src="telegram/content/drtel_59001_1779733200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس : باز شدن اینترنت مشکلی نداره ولی بحث اینه که دولت داره با یه ستاد تازه‌تأسیس برای اینترنت تصمیم می‌گیره؛ درحالی‌که این اختیار دست شورای عالی امنیت ملیه و دولت نباید خودش جداگانه وارد این ماجرا بشه و راجع به وصل کردن اینترنت تصمیم بگیره یا…
+</div>
+
+## drtel — post 59000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری الحدث : منابع ایرانی به ما گفتن؛ ایران ظاهراً آمادست اورانیوم غنی‌شده‌ی سطح بالاشو از کشور خارج کنه! @DrTeL
+</div>
+
+## drtel — post 58999
+
+<div align="center">
+  <img src="telegram/content/drtel_58999_1779733201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو جلسهٔ ستاد ویژهٔ ساماندهی فضای مجازی؛ اتصال مجدد اینترنت بین‌الملل به رای گذاشته شد که با 9 رای موافق و 3 رای مخالف تصویب و به پزشکیان ارسال شد. @DrTeL | FARS
+</div>
+
+## drtel — post 58998
+
+<div align="center">
+  <img src="telegram/content/drtel_58998_1779733201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## drtel — post 58996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ذوالقدر، دبیر شورای عالی امنیت ملی:
+هیچ عقب‌نشینی‌ای در کار نیست، هم توی میدان نظامی، هم دیپلماسی و هم حضور مردم تو خیابون‌ها، ایران تونسته طرف مقابل(آمریکا و اسرائیل) رو تحت فشار بذاره؛
+الان بیشتر از هر زمان دیگه‌ای کشور به اتحاد و همبستگی نیاز داره تا آمریکا و اسرائیل هم از این جهت ناامید بشن و هر حرف یا کاری که باعث تفرقه بشه، به ضرر کشوره.
+
+@DrTeL
+</div>
+
+## drtel — post 58994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقا پس چرا اینهمه مدت تو بگایی باید زندگی میکردیم و جوونیمون میرفت
+از اول میدادن میرفت دیگه
+</div>
+
+## drtel — post 58993
+
+<div align="center">
+  <img src="telegram/content/drtel_58993_1779733202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری الحدث :
+منابع ایرانی به ما گفتن؛ ایران ظاهراً آمادست اورانیوم غنی‌شده‌ی سطح بالاشو از کشور خارج کنه!
+
+@DrTeL
+</div>
+
+## drtel — post 58992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری CNN : یه مقام سعودی به ما گفته؛ عربستان فعلاً اصلاً از موضعش کوتاه نیومده و هنوزم همون حرف قبلی رو می‌زنه؛ یعنی تا وقتی تشکیل کشور فلسطین وارد یه مسیر قطعی و بدون برگشت نشه، خبری از عادی‌سازی رابطه با اسرائیل نیست. @DrTeL
+</div>
+
+## drtel — post 58991
+
+<div align="center">
+  <img src="telegram/content/drtel_58991_1779733202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : مذاکرات با ایران داره خوب پیش میره؛ یا یه توافق خفن درمیاد که به نفع همه‌ست، یا اصلاً توافقی در کار نیست و دوباره برمی‌گردیم به جنگ، اونم شدیدتر از قبل؛ من با رهبرای عربستان، قطر، امارات، ترکیه، مصر، پاکستان و بقیه حرف زدم و گفتم وقتشه همتون وارد…
+</div>
+
+## drtel — post 58990
+
+<div align="center">
+  <img src="telegram/content/drtel_58990_1779733203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال:
+مذاکرات ایران بر سر برنامه هسته‌ای و لغو تحریم‌ها به بن‌بست خورده.
+
+@DrTeL
+</div>
+
+## drtel — post 58989
+
+<div align="center">
+  <img src="telegram/content/drtel_58989_1779733204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+مذاکرات با ایران داره خوب پیش میره؛
+یا یه توافق خفن درمیاد که به نفع همه‌ست، یا اصلاً توافقی در کار نیست و دوباره برمی‌گردیم به جنگ، اونم شدیدتر از قبل؛
+من با رهبرای عربستان، قطر، امارات، ترکیه، مصر، پاکستان و بقیه حرف زدم و گفتم وقتشه همتون وارد توافق ابراهیم بشید.
+اگه ایرانم با من توافق کنه، خیلی اتفاق بزرگی میشه که اونا هم به این جمع اضافه بشن.
+به نظرم این میتونه بزرگ‌ترین و تاریخی‌ترین توافق خاورمیانه باشه؛ یه چیزی که منطقه رو قوی، پولدار و متحد کنه.
+@DrTeL
+</div>
+
+## drtel — post 58988
+
+<div align="center">
+  <img src="telegram/content/drtel_58988_1779733204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز:
+عراقچی و قالیباف برای صحبت درباره توافق احتمالی بین ایران و آمریکا به قطر سفر کردن.
+
+همتی، رییس کل بانک مرکزی هم برای صحبت و آزادسازی دارایی‌های بلوکه شده‌ی ایران به سفر قطر کرد.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 16:19
 ---
 
