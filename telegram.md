@@ -7,6 +7,380 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 03:14
+---
+
+## SoftNetConnect — post 10779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+T.me_SoftNetConnect tunnel 🖤.npvt
+</div>
+
+## SoftNetConnect — post 10778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.250&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+https://t.me/proxy?server=195.254.165.245&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+https://t.me/proxy?server=195.254.165.244&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+https://t.me/proxy?server=142.54.189.108&port=443&secret=ee09db815a6d82a31fda76f872230c69d7706b676275696c642e6f7267
+
+https://t.me/proxy?server=142.54.189.110&port=443&secret=ee09db815a6d82a31fda76f872230c69d7706b676275696c642e6f7267
+
+https://t.me/proxy?server=195.254.165.249&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10777
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/10777" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel نامحدود 7 عدد
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10775
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/10775" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel تانل با هزینه شخصی
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10774
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10774_1779839085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کل ستاد فرماندهی گردان‌های القسام توسط ارتش اسرائیل و موساد به قتل رسیده‌اند، همه فرماندهانی که هفت اکتبر هدایت میکردن و کسانی که تجربه طولانی در تأسیس و ستون های اصلی حماس داشتند کشته شدن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10773
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10773_1779839085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂
+📺صدا و سیما تصویر جدیدی از مجتبی خامنه ای منتشر کرد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10772
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10772_1779839086.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🇺🇸فردا ترامپ میره کمپ دیوید و جلسه اضطراری میذاره @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ شاید بگید مهم نیست ولی خیلی مهمه کارتر سال ۱۹۷۸ قرارداد صلح بین مصر و اسرائیل رو توی کمپ دیوید انجام داد بیل کلینتون سال ۲۰۰۰ بین نخست وزیر اسرائیل و یاسر عرفات توافق نوشتن رزولت میزبان چرچیل در کمپ دیوید بود که بعدش آمریکا توی جنگ جهانی دوم وارد شد بوش…
+</div>
+
+## SoftNetConnect — post 10766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🇺🇸فردا ترامپ میره کمپ دیوید و جلسه اضطراری میذاره @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🇺🇸فردا ترامپ میره کمپ دیوید و جلسه اضطراری میذاره
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تری ینگست خبرنگار فاکس‌نیوز از اسرائیل گزارش میکند : رسانه‌های حکومتی ایران ادعا می‌کنند که برای هرگونه توافق با آمریکا، باید ۲۴ میلیارد دلار آزاد شود.
+
+تیم ترامپ می‌گوید چنین چیزی قرار نیست اتفاق بیفتد و “هرگونه کاهش فشار مالی فقط در صورتی انجام می‌شود که ایران به تعهداتش عمل کند.”
+
+ایران باید کاملاً از برنامه هسته‌ای دست بکشد و هیچ‌گونه کنترلی بر تنگه هرمز نداشته باشد، تمام.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸پست جدید ترامپ در تروث سوشال: اگر ایران تسلیم شود، بپذیرد که نیروی دریایی‌اش از بین رفته و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر با ما نیست، و اگر تمام ارتش آن از تهران خارج شود در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا گرفته‌اند و هرکدام…
+</div>
+
+## SoftNetConnect — post 10762
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10762_1779839086.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸پست جدید ترامپ در تروث سوشال:
+
+اگر ایران تسلیم شود، بپذیرد که نیروی دریایی‌اش از بین رفته و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر با ما نیست، و اگر تمام ارتش آن از تهران خارج شود در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا گرفته‌اند و هرکدام فریاد بزنند «من تسلیم می‌شوم، من تسلیم می‌شوم»
+و همزمان دیوانه‌وار پرچم سفید را تکان دهند، و اگر تمام رهبران باقی‌مانده‌شان همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت بزرگ و نیروی شگفت‌انگیز ایالات متحده آمریکا بپذیرند، در این صورت نیویورک تایمزِ شکست‌خورده، وال‌استریت ژورنال چین (!)، سی‌ان‌ان فاسد و اکنون بی‌اهمیت، و سایر اعضای رسانه‌های «اخبار جعلی»، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا به دست آورده و اصلاً رقابت نزدیک هم نبوده است.
+دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها کاملاً دیوانه شده‌اند!!!
+رئیس‌جمهور DJT
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نورالدین الدغیر، خبرنگار الجزیره تو تهران:
+همه چیز بین ایران و آمریکا انجام شده و فقط مونده امضای دوطرف...
+
+@DrTeL
+</div>
+
+## drtel — post 59096
+
+<div align="center">
+  <a href="telegram/content/drtel_59096_1779839087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به مناسبت وصل شدن اینترنت؛
+امشب اسرائیل اینجوری داره شبِ لبنان رو صبح میکنه:
+
+@DrTeL
+</div>
+
+## drtel — post 59095
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا جنگ دیدیم ۸۸ روز قطعی نت دیدیم ولی هنوز بازگشت بابک رو ندیدیم
+</div>
+
+## drtel — post 59094
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا جنگ دیدیم
+۸۸ روز قطعی نت دیدیم
+ولی هنوز بازگشت بابک رو ندیدیم
+</div>
+
+## drtel — post 59093
+
+<div align="center">
+  <img src="telegram/content/drtel_59093_1779839088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نکنه این پزشکیانم یه چیزیه شبیه اون پیرمرده تو اسکویید گیم که همه فکر میکردن کسخله؟
+
+@DrTeL
+</div>
+
+## drtel — post 59092
+
+<div align="center">
+  <img src="telegram/content/drtel_59092_1779839089.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس سوئد🇸🇪 ازدواج فامیلی رو ممنوع کرد؛
+طبق این مصوبه، از اول ژوئیه 2026 دیگه ازدواج بین بچه‌های "عمو، دایی، عمه و خاله" تو سوئد ممنوعه.
+
+دلیلشم جلوگیری از خشونت‌های ناموسی، فشار خانوادگی و ازدواج‌های اجباری اعلام شده.
+
+@DrTeL
+</div>
+
+## drtel — post 59091
+
+<div align="center">
+  <a href="telegram/content/drtel_59091_1779839089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به خونه خوش اومدین برخط‌های شیطون❤️
+</div>
+
+## drtel — post 59090
+
+
+
+
+## drtel — post 59089
+
+<div align="center">
+  <img src="telegram/content/drtel_59089_1779839090.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب شاخص فروش پیتزافروشی‌های اطراف شرکت پورن‌هاب، حدود 200 درصد افزایش داشته.
+
+@DrTeL
+</div>
+
+## drtel — post 59088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دست به گیرنده‌هاتون(فیلترشکن) نزنید؛
+
+بخاطر اینکه تازه اینترنت بین‌الملل رو وصل کردن، ملت همزمان هجوم آوردن به تلگرام، اینستا و بقیه شبکه‌های مجازی، از اون طرفم چون زیرساخت اینترنت کشور مثل همیشه شاهکاره، پهنای باند اینترنت ریده‌ به خودش.
+
+@DrTeL
+</div>
+
+## drtel — post 59087
+
+<div align="center">
+  <img src="telegram/content/drtel_59087_1779839091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن زنگنه، نماینده مجلس :
+آمریکا مجبور شده که "حق غنی‌سازی، رفع کامل تحریم‌ها و حاکمیت ایران بر تنگه هرمز" رو بپذیره.
+الان فقط دو اختلاف مونده؛ بی‌اعتمادی ایران و جزئیات درصد غنی‌سازی.
+@DrTeL
+</div>
+
+## drtel — post 59086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نرفتیم زندان ولی طعم آزاد شدن از زندان رو چشیدیم
+</div>
+
+## drtel — post 59085
+
+<div align="center">
+  <a href="telegram/content/drtel_59085_1779839091.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴از کسایی که تو تجمعات شبانه شرکت کردن دارن میپرسن نظرتون با قطع دائم اینستاگرام
+📱 چیه؟
+
+
+و اما جواب حامیان حکومت :
+
+
+@DrTeL
+</div>
+
+## drtel — post 59084
+
+<div align="center">
+  <a href="telegram/content/drtel_59084_1779839092.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت :
+
+
+@DrTeL
+</div>
+
+## drtel — post 59082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسخل تورو تنها گذاشتن منو دیلیت اکانت کردن
+</div>
+
+## drtel — post 59081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی زود تنهام گذاشتید نامردا
+</div>
+
+## drtel — post 59080
+
+<div align="center">
+  <a href="telegram/content/drtel_59080_1779839093.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاید باورتون نشه ولی ملت هنوز هم خوب کسخلن؛
+جلسه پاکسازی روح و روان که خداتومن هزینشه :
+
+
++ ارزش دانلود به علت وصل شدن اینترنت: 8.3\10
+
+@DrTeL
+</div>
+
+## drtel — post 59079
+
+<div align="center">
+  <img src="telegram/content/drtel_59079_1779839095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ دسترسی سریع و مستقیم به وینکوبت
+
+
+🟢 فرآیند ورود به سایت به شکلی طراحی شده که کاربران بدون درگیر شدن با لینک‌های متعدد یا مسیرهای غیرضروری، مستقیماً وارد محیط اصلی سایت شوند.
+
+
+📌این دسترسی از طریق ربات رسمی انجام می‌شود:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+🟢 به جای روش‌های قدیمی ورود، این ساختار یک مسیر واحد و ثابت ارائه می‌دهد که همیشه قابل استفاده است.
+
+
+📌کانال رسمی وینکوبت:
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 23:00
 ---
 
