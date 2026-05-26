@@ -7,6 +7,419 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 23:00
+---
+
+## SoftNetConnect — post 10761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕شبکه کان نیوز اسرائیل : ترامپ و نتانیاهو الان تو جلسه هستن و دارن راجب ایران و درگیری های لبنان صحبت میکنن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایال زمیر، رئیس ستاد کل نیروهای مسلح اسرائیل اعلام کرد کشته‌شدن عزالدین الحداد، فرمانده‌ شاخه ‌نظامی «حماس» یک گام مهم و موفقیتی بزرگ در عرصه عملیاتی است. او افزود اسرائیل «با جدیت» به‌ تعقیب و هدف قرار دادن سایر رهبران و فرماندهان حماس ادامه خواهد داد.
+</div>
+
+## SoftNetConnect — post 10759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕نیویورک تایمز: ایران با چندین پهپاد انتحاری به چند ناو آمریکایی که از سمت دریای عمان، قصد ورود به تتگه هرمز را داشتند حمله کرده است
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10758
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10758_1779823850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🌐 نت بلاکس: اینترنت ایران بعد از ۸۸ روز به طور کامل برگشت
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕گزارشاتی مبنی بر شناسایی و غیرفعال کردن ولت های ایرانی در تراست ولت و فریز تتر برای جلوگیری از پولشویی دولت ایران ، رسیده و گفته میشه بیش از ۱ میلیون ولت شناسایی شده است که به زودی مسدود خواهند شد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕نیویورک تایمز: ترامپ فردا به کمپ دیوید میره تا جلسه‌ای سطح بالا در مورد ایران با سران نظامی و سیاسی این کشور برگزار کنه.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10755
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/10755" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel نامحدود all
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+T.me_SoftNetConnect 7تا ایپی متصل.npvt
+</div>
+
+## SoftNetConnect — post 10753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وایفای
+vless://28be6e1e-f7b1-431c-bb72-8778639bf108@91.107.254.216:27769?type=tcp&encryption=none&security=none#SAFA
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌏سنتکام: پروژه آزادی از سر گرفته نشده و نیروهای آمریکایی در حال حاضر کشتی‌های تجاری رو از تنگه هرمز همراهی نمی‌کنند.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی وایفای
+
+https://t.me/proxy?server=176.65.128.238&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+https://t.me/proxy?server=5.75.248.201&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+https://t.me/proxy?server=87.248.129.5&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 ترامپ بلاخره بعد یک مدت طولانی روز چهارشنبه سفری نادر به کمپ دیوید داره تا جلسه کابینه برگزار کنه، چون مذاکرات صلح با ایران به زمان حساس خودش نزدیک شده
+
+انتظار میره همه اعضای کابینه از جمله تولسی گابارد، مدیر اطلاعات ملی به ترامپ تو اقامتگاه ریاست‌جمهوری مناطق روستایی مریلند بپیوندن
+
+
+♨️ بعضی از رسانه ها معتقدن به هدف خودش رسیده ترامپ و قراره شرح بده همه چیز
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕سی بی اس :
+دولت قطر گزارش ارائه میلیاردها دلار به ایران برای تثبیت توافق صلح را تکذیب کرد
+</div>
+
+## SoftNetConnect — post 10748
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10748_1779823851.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صحنه های خوفناک از شهر معرکه در جنوب لبنان 
+😧
+</div>
+
+## SoftNetConnect — post 10747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+😂عراقچی و 
+😂قالیباف از قطر برگشتن.
+</div>
+
+## SoftNetConnect — post 10746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای رسایی کیر شدنت مبارک
+😃
+</div>
+
+## SoftNetConnect — post 10745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای رسایی کیر شدنت مبارک
+😃
+</div>
+
+## SoftNetConnect — post 10744
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖 نیرو زمینی اسرائیل دستور تخلیه اجباری برای شهرهای مشغره و سحمر در دره بقاع شرقی لبنان صادر کرده‌اند.
+</div>
+
+## SoftNetConnect — post 10743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖 جنگنده‌های اسرائیلی حملات هوایی به کفرتبنت، خربت سلم و زوطر الغربیة در جنوب لبنان انجام دادند.
+</div>
+
+## SoftNetConnect — post 10740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖 جنگنده‌های اسرائیلی حملات هوایی به کفرتبنت، خربت سلم و زوطر الغربیة در جنوب لبنان انجام دادند.
+</div>
+
+## drtel — post 59078
+
+<div align="center">
+  <img src="telegram/content/drtel_59078_1779823852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت مخابرات :
+اینترنت بین‌الملل مشترکینِ "FTTH، VDSL و ADSL" رو به طور کامل متصل کردیم – اگه مشکلی تو اتصال دارین یا سرعت پایینه، مودم‌تون رو ری‌استارت کنین.
+
+@DrTeL
+</div>
+
+## drtel — post 59077
+
+<div align="center">
+  <img src="telegram/content/drtel_59077_1779823853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس : تو روز 88ـم از قطعی اینترنت تو ایران و بعد 2093 ساعت، حالا اتصال اینترنت بین‌الملل تو این کشور یه چصه بازیابی شده - که مشخص نیست پایدار بمونه یا نه. @DrTeL
+</div>
+
+## drtel — post 59076
+
+<div align="center">
+  <img src="telegram/content/drtel_59076_1779823853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدرضا عارف، معاون اول پزشکیان : به عشق مردم که اینطور پای نظام و ایران موندن، اولین قدم واسه دسترسی آزاد به فضای مجازی برداشته شد؛ بوس بوس. @DrTeL
+</div>
+
+## drtel — post 59075
+
+<div align="center">
+  <img src="telegram/content/drtel_59075_1779823854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ :
+همین الان معاینه 6 ماهه‌ام تموم شد و گفتن خارکسه سالمِ سالمی، از دکترها و کادر فوق‌العاده مرکز پزشکی نظامی والتر رید تشکر می‌کنم!
+
+@DrTeL
+</div>
+
+## drtel — post 59074
+
+<div align="center">
+  <img src="telegram/content/drtel_59074_1779823855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجتبی خامنه‌ای : اسرائیل🇮🇱 15 سال آینده رو نخواهد دید! غدّه‌ی سرطانی اسرائیل به مراحل پایانی عمرش نزدیک شده و به فضل الهی و طبق آینده‌نگری 10 سال قبل پدرم، 25 سال بعد از اون تاریخ رو نخواهد دید، ان‌شاءالله. @DrTeL
+</div>
+
+## drtel — post 59073
+
+<div align="center">
+  <img src="telegram/content/drtel_59073_1779823855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل
+🇮🇱 از دیروز به دستور نتانیاهو حملات و پیشروی‌هاشو به سمت جنوب لبنان
+🇱🇧 خیلی بیشتر کرده به طوری که از منطقه زرد رنگ [که قرار بود جلوتر نرن] هم جلوتر رفتن.
+
+اسرائیل قراره سایت‌های پهپادهای فیبرنوری که تو این منطقه هستن و سربازای اسرائیلی رو داخل منطقه هدف قرار میدادن از بین ببرن.
++این حملات به حدی شدیده که خیلی از ساکنین جنوب لبنان در حال فرار از منطقه هستن.
+
+@DrTeL | clash report
+</div>
+
+## drtel — post 59072
+
+<div align="center">
+  <img src="telegram/content/drtel_59072_1779823856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شات وایرال شده از دو دختر یا شاید پسرِ حامی حکومت تو تجمعات شبانه و تابلویی که تو دستشونه :
+
+قابل توجه سگطنت طلب‌ها ، دماغش گرفتیم جونش دراومد ، از شاهتون دماغش رسید، منتظر بقیه‌اش باشید...
+
+@DrTeL
+</div>
+
+## drtel — post 59071
+
+<div align="center">
+  <a href="telegram/content/drtel_59071_1779823856.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری هم‌میهن: پزشکیان دستور بازگشایی اینترنت بین‌الملل رو صادر کرده. @DrTeL
+</div>
+
+## drtel — post 59070
+
+<div align="center">
+  <img src="telegram/content/drtel_59070_1779823858.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گوگل پلی
+📱 هم روی بعضی مودم‌های خونگی در دسترس قرار گرفته و بدون فیلترشکن بالا میاد. @DrTeL
+</div>
+
+## drtel — post 59069
+
+<div align="center">
+  <a href="telegram/content/drtel_59069_1779823858.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون وضعیت کانفیگ فروش‌هایی که تو این مدت داشتن گیگی 300 میکردن تو کون خلق الله :
+
+@DrTeL
+</div>
+
+## drtel — post 59068
+
+<div align="center">
+  <a href="telegram/content/drtel_59068_1779823859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موقعیت:
+
+جنگ تموم شده
+نتا داره کم کم وصل میشه
+داری میری بخوابی که با این شاهکار روبرو میشی..
+
+@DrTeL
+</div>
+
+## drtel — post 59067
+
+<div align="center">
+  <img src="telegram/content/drtel_59067_1779823860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل اینکه باز کردن اینترنتا کار پزشکیان نبوده، کار گلزار بود
+</div>
+
+## drtel — post 59066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس : تو روز 88ـم از قطعی اینترنت تو ایران و بعد 2093 ساعت، حالا اتصال اینترنت بین‌الملل تو این کشور یه چصه بازیابی شده - که مشخص نیست پایدار بمونه یا نه. @DrTeL
+</div>
+
+## drtel — post 59065
+
+<div align="center">
+  <img src="telegram/content/drtel_59065_1779823861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدرضا عارف، معاون اول پزشکیان :
+به عشق مردم که اینطور پای نظام و ایران موندن، اولین قدم واسه دسترسی آزاد به فضای مجازی برداشته شد؛ بوس بوس.
+
+@DrTeL
+</div>
+
+## drtel — post 59064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست خدا خطا رفت وی پی ان فروش بگا رفت
+</div>
+
+## drtel — post 59063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چه باورتون بشه یا نشه؛
+
+ولی وی پی ان فروشا تواین چندمدت اونقدری در آوردن که خیلی راحت میتونن حتی حکومت رو چنج کنن.
+</div>
+
+## drtel — post 59062
+
+<div align="center">
+  <img src="telegram/content/drtel_59062_1779823861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس :
+تو روز 88ـم از قطعی اینترنت تو ایران و بعد 2093 ساعت، حالا اتصال اینترنت بین‌الملل تو این کشور یه چصه بازیابی شده - که مشخص نیست پایدار بمونه یا نه.
+
+@DrTeL
+</div>
+
+## drtel — post 59060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدین؟ قبلا هم خدمتون عرض کردم
+ایران هم اگه یه روز درست شه، ایرانی ولی هیچوقت درست نمیشه
+</div>
+
+## drtel — post 59059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلمه پزشکیان چندتا لایک داره؟
+</div>
+
+## drtel — post 59058
+
+<div align="center">
+  <img src="telegram/content/drtel_59058_1779823862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم سگ باشه پزشکیان نباشه کسی به تخمش نمی‌گیره بنده خدارو
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 01:50
 ---
 
