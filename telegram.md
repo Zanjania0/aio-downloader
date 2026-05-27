@@ -7,6 +7,378 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 15:34
+---
+
+## SoftNetConnect — post 10796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕شبکه 12 اسرائیل: ناوگان هوایی آمریکا ظرف 72 ساعت به پایگاه‌های خود در اروپا منتقل خواهد شد و در صورت از سرگیری درگیری با ایران، هواپیماها در حالت آماده‌باش برای بازگشت به فرودگاه بن گوریون قرار خواهند گرفت @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10795
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10795_1779883446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕شبکه 12 اسرائیل: ناوگان هوایی آمریکا ظرف 72 ساعت به پایگاه‌های خود در اروپا منتقل خواهد شد و در صورت از سرگیری درگیری با ایران، هواپیماها در حالت آماده‌باش برای بازگشت به فرودگاه بن گوریون قرار خواهند گرفت
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴آمریکا اجازه اقامت به تیم ملی فوتبال جمهوری اسلامی در بازی های جام جهانی ر‌و نداده و برای هر بازی که تو آمریکا داره؛ فقط همون 2 ساعت اجازه اقامت داره و بعد از بازی سریع باید برگرده مکزیک
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+متصل با سرعت بالا 
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+متصل با سرعت بالا
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10790
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10790_1779883446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕همراه اول امروز در پیامی به کاربران اینترنت پرو اعلام کرد در صورت تمایل می‌توانید اینترنت خود را به حالت قبل برگردانید😂
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 رسانه I24 NEWS: نیروهای دفاعی اسرائیل (IDF)
+🪖 و فرماندهی مرکزی ارتش آمریکا (سنتکام)
+🇺🇸 در حالت آماده‌باش بالا باقی مانده‌اند، در شرایطی که احتمال شکست مذاکرات میان واشنگتن و تهران و صدور دستور اقدام نظامی از سوی رئیس‌جمهور دونالد ترامپ وجود دارد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕وال استریت ژورنال :
+حکومت ایران قصد داره قبل از اینکه بحران اقتصادی دوباره منجر به اعتراضات خیابونی بشه، با یه توافق اقتصادی با آمریکا جلوی این اتفاق رو بگیره
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴خبر هایی داره توسط رسانه های آمریکایی پخش میشه که جی دی ونس اطلاعاتی که ترامپ فقط با اون در میون گذاشته بوده رو لو میداده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پشماتون بریزه خبرهایی میاد که خبر کمپ دیوید یک تله اطلاعاتی بود تا کسی که تو کاخ سفید خبرها رو درز میداد پیدا کنن و طرفم گیر افتاده ولی خب می‌تونه شایعه هم باشه 
+🤗 @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10785
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10785_1779883447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸پست جدید کاخ سفید، : مامویت سادست؛ صلح از طریق قدرت
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 براثر برخورد یک خودروی متواری در شهر عقدا اردکان به ایست بازرسی، یک بسیجی به‌ اسم «محمد معراج نظری» کشته شده.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕اسرائیل هیوم: پالس‌هایی از احتمال حمله آمریکا به گوش میرسد @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕اسرائیل هیوم: پالس‌هایی از احتمال حمله آمریکا به گوش میرسد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رویترز: پاکستان از میانجیگری عقب‌نشینی می‌کند در حالی که قطر به مرکز اصلی بین تهران و واشنگتن تبدیل می‌شود و تمرکز بر دارایی‌های مسدود شده ایران در دوحه است
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🇺🇸فردا ترامپ میره کمپ دیوید و جلسه اضطراری میذاره @SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59115
+
+<div align="center">
+  <a href="telegram/content/drtel_59115_1779883447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بنیامین نتانیاهو🇮🇱:
+ما "محمد عوده" یکی از رهبران حماس که توی حمله‌ی 7 اکتبر به اسرائیل دست داشت رو ترور کردیم.
+ما به همه دسترسی خواهیم داشت.
+
+@DrTeL
+</div>
+
+## drtel — post 59114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دختری که ۹۰ روز کانفیگ بهش نرسیده باید قبول کنیم که زن زندگیه و مثل این دوزاریایی که ناز میکنن و از همه کانفیگ میگیرن نیست
+</div>
+
+## drtel — post 59113
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دختری که تو این 90 روز بهش کانفیگ نرسیده
+دیگه باید قبول کنه که خوشگل نیست.
+</div>
+
+## drtel — post 59109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امسال انگار سال سالِ کونه🍑، چالش عجیب و کثافتی که این روزها تو اینستاگرام
+📱 به شدت وایرال شده؛
+
+
+داستان ازاین قراره که؛ ملت کونشونو به شکل قلب درمیارن، ازش عکس میگیرن و تو اینستاگرام پست میکنن.
+این چالش درحال حاضر پر بازدید‌ترین چالش حالِ حاضر اینستاگرامه.
+
+@DrTeL
+</div>
+
+## drtel — post 59108
+
+<div align="center">
+  <img src="telegram/content/drtel_59108_1779883448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+⚡️هر مسابقه یک فرصت، هر انتخاب یک هیجان!
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+بونوس خوش‌آمدگویی
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران جدید، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59107
+
+<div align="center">
+  <img src="telegram/content/drtel_59107_1779883449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما تصویر جدیدی از مجتبی خامنه‌ای منتشر کرده که نشون میده کاملا سالمه.
+
+❌ این عکس که از دیشبه داره تو رسانه‌های مختلف دست به دست میشه، فیکه؛ صداوسيما هیچ تصویر جدیدی از مجتبی خامنه‌‌ای نشون نداده.
+
+@DrTeL
+</div>
+
+## drtel — post 59106
+
+<div align="center">
+  <img src="telegram/content/drtel_59106_1779883450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو چین
+🇨🇳 یه بالشت بغل‌کردنی با شکل عجیب ساخته شده که کلی سر و صدا کرده؛
+این بالشت واسه آدماییه که استرس، اضطراب یا افسردگی دارن و جوری طراحی شده که انگار یکی بغلت کرده. جالب‌تر اینکه خودش مثل آدم نفس می‌کشه و با نفس کشیدن طرف هماهنگ میشه تا آرومش کنه.
+اول خیلیا به خاطر ظاهرش مسخره‌ش می‌کردن، ولی بعد کلی آدم گفتن باهاش راحت‌تر و آروم‌تر می‌خوابن.
+
+@DrTeL | PMC
+</div>
+
+## drtel — post 59105
+
+<div align="center">
+  <img src="telegram/content/drtel_59105_1779883450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هواشناسی :
+خودتون رو خوب آماده کنین که از امروز تا آخر هفته قراره از اولین موج گرمای بهاری، بخارپز بشیم.
+
+@DrTeL
+</div>
+
+## drtel — post 59104
+
+<div align="center">
+  <img src="telegram/content/drtel_59104_1779883451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اتاق اصناف ایران گفته برای کاهش دسترسی جوونا به سیگار، از این به بعد هیچکس نباید سیگار نخی بفروشه.
+
++با این حساب اگه یه جوون هوس کنه تو طول روز یه نخ سیگار بکشه، باید یه بسته بخره همشو بکشه.
+
+@DrTeL
+</div>
+
+## drtel — post 59102
+
+<div align="center">
+  <img src="telegram/content/drtel_59102_1779883451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 27 May، روزِ وقت گذروندن با آدم مورد علاقته.
+
+
+@DrTeL | nationaltoday
+</div>
+
+## drtel — post 59100
+
+<div align="center">
+  <a href="telegram/content/drtel_59100_1779883452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 6 خرداد، عید قربانه.
+عید قربان یادبود فداکاری پیامبرِ مسلمانان "ابراهیم خلیل" که خدا به‌ جای قربونی پسرش گوسفند فرستاد، مسلمونا هم تو این روز گوسفند قربونی میکنن و گوشتشو بین نیازمندا و فامیل تقسیم می‌کنن.
+﻿
+@DrTeL
+</div>
+
+## drtel — post 59099
+
+<div align="center">
+  <a href="telegram/content/drtel_59099_1779883453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاید باورتون نشه ولی این مدت که نت‌ها قطع بود؛
+
+دوستان زحمت کشیدن و مشکلِ مکان رو به زیباترین شکل ممکن حل کردن:
+
+@DrTeL
+</div>
+
+## drtel — post 59098
+
+<div align="center">
+  <img src="telegram/content/drtel_59098_1779883455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕹 گردونه شانس رایگان وینکوبت فعال شد!
+
+🎰 هر ۱۲ ساعت یک‌بار شانس خودتان را امتحان کنید و جوایز نقدی متنوع دریافت کنید.
+
+🎁 تا سقف ۱ میلیون تومان جایزه روزانه
+✅ فعال برای تمامی کاربران
+
+📌برای شرکت در گردونه شانس، وارد سایت وینکوبت شوید:👇
+
+🟣 ywincob.com
+🟣 ywincob.com
+📌کانال رسمی وینکوبت:
+
+🔵 @Wincobetofficial
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 03:14
 ---
 
