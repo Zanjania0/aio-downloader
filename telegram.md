@@ -7,6 +7,464 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 23:23
+---
+
+## SoftNetConnect — post 10847
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10847_1779911598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هم اکنون گزارش ها از دو ترور بزرگ در شمال غزه. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هم اکنون گزارش ها از دو ترور بزرگ در شمال غزه.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+PROXY :
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متصل :
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+trojan://mitivpn@165.215.250.14:443?path=%2F%3Fed%3D2048&security=tls&alpn=http%2F1.1&host=www.iranpoems.ir&fp=chrome&type=ws&sni=www.iranpoems.ir#2-T.me%2FSoftNetConnect
+
+trojan://mitivpn@104.25.249.217:443?path=%2F%3Fed%3D2048&security=tls&alpn=http%2F1.1&host=www.iranpoems.ir&fp=chrome&type=ws&sni=www.iranpoems.ir#1-T.me%2FSoftNetConnect
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجور که دیدیم امروز ترامپ هفته قبل می‌گفت نزدیک ترین حالت ممکن به توافقیم ، نا امید شده و کلافه است.
+
+و همینطور جام جهانی و حج خورده این وسط ، حتی توافقی شکل بگیره وضعیت میشه قذافی دوم و این جمهوری اسلامی خوب میدونه اورانیوم برای بازدارندگیش نیازه ، اوکراین بمب هسته ای هاش تحویل داد و الان زیر موشکه
+
+کشور های عربی بخاطر مردمشون هرگز به پیمان ابراهیم نمی‌پیوندن
+
+خواهیم دید چه میشود
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : چشم
+
+
+📺صداوسیما :
+شرط جدید ما اینه آمریکا ۳۰۰ میلیارد دلار بهمون غرامت بده تا توافق کنیم باهاش.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕اسرائیل هیوم: ترامپ پیش‌نویس یادداشت تفاهم با ایران را به نتانیاهو و رهبران منطقه تحویل داد تا نظرات خود را اعلام کنند
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.14&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی پرسرعت :
+
+https://t.me/socks?server=telegram.etihb.ir&port=11600&user=PRX4&pass=123456
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متصل عالی :
+
+https://t.me/proxy?server=87.248.129.207&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالب شد 
+🇺🇸ترامپ: عربستان سعودی، امارات، قطر و بقیه کشورا باید به «توافق‌نامه‌های ابراهیم» بپیوندن اونا به ما بدهکارن هنوز مطمئن نیستم اگه کشورهای خلیج فارس به توافق ابراهیم نپیوندن، اصلاً سر توافق با ایران جلو برم یا نه. 
+🟢پروکسی @SoftNetConnect | برای…
+</div>
+
+## SoftNetConnect — post 10835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : ما کنترل پولی را که آنها ادعا می‌کنند مال خودشان است، در دست داریم. ما کنترل آن پول را حفظ خواهیم کرد. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : ما کنترل پولی را که آنها ادعا می‌کنند مال خودشان است، در دست داریم. ما کنترل آن پول را حفظ خواهیم کرد. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آقا ریدم بد عصبیه
+🫃 
+🇺🇸ترامپ دربارهٔ عمان: تنگه‌ها مگه ارث باباشونه تنگه ها برای همه باز میشن و هیچ‌کس اونا رو کنترل نمیکنه عمان هم باید مثل بقیه رفتار کنه، وگرنه مجبور میشیم اونارم نابود کنیم @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸ترامپ: تا زمانی که ایرانی‌ها رفتار خود را اصلاح نکنند، هیچ پولی به آنها برنمی‌گردانیم‌‌. در مورد کاهش تحریم های ایران صحبت نمی‌کنیم. اگر ایران آن چیزی را میخواهیم به ما ندهد وزیر جنگ کار تمام میکند @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10831
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10831_1779911599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙خبرنگار: آیا با این موضوع راحت خواهید بود که روسیه یا چین اورانیوم غنی‌شده ایران را بگیرند؟ 
+🇺🇸ترامپ: نه @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10830
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10830_1779911599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آقا ریدم بد عصبیه
+🫃 
+🇺🇸ترامپ دربارهٔ عمان: تنگه‌ها مگه ارث باباشونه تنگه ها برای همه باز میشن و هیچ‌کس اونا رو کنترل نمیکنه عمان هم باید مثل بقیه رفتار کنه، وگرنه مجبور میشیم اونارم نابود کنیم @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10829
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10829_1779911600.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آقا ریدم بد عصبیه
+🫃
+
+
+🇺🇸ترامپ دربارهٔ عمان:
+تنگه‌ها مگه ارث باباشونه تنگه ها برای همه باز میشن و هیچ‌کس اونا رو کنترل نمیکنه
+عمان هم باید مثل بقیه رفتار کنه، وگرنه مجبور میشیم اونارم نابود کنیم
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشماتون بریزه
+😧 
+🪖ارتش اسرائیل اینجور با زنگ زدن به اهالی شهر صور جنوب لبنان هشدارهای تخلیه، آغاز حملات به مواضع حزب‌الله آغاز کرد. @SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59135
+
+<div align="center">
+  <img src="telegram/content/drtel_59135_1779911602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دوستانی که تازه آنلاین شدن در جریان باشید اون موقع که شما نبودید، دنیا جهانبخت و مهدی رسولی باهم رل زدن:
+
+@DrTeL
+</div>
+
+## drtel — post 59132
+
+<div align="center">
+  <a href="telegram/content/drtel_59132_1779911603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت انویدیا رسماً از DLSS 5 رونمایی کرد؛
+یه فناوری جدید مبتنی بر هوش مصنوعی که باعث میشه بازی‌ها هم روون‌تر اجرا بشن، هم گرافیکشون خیلی واقعی‌تر و خفن‌تر دیده بشه.
+انویدیا با DLSS 5 رسماً تو صنعت گیم انقلاب به‌پا کرده؛ طوری که دیگه تشخیص دادن بازی‌های ویدیویی از فیلم‌های سینمایی خیلی سخت شده.
+@DrTeL
+</div>
+
+## drtel — post 59131
+
+<div align="center">
+  <img src="telegram/content/drtel_59131_1779911605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایال زمیر، رئیس ستاد کل ارتش اسرائیل🇮🇱:
+
+پایه‌های حکومت آیت‌الله‌ها به‌طور قابل توجهی ترک برداشته و آینده و ثبات اون تو هاله‌ای از ابهام قرار داره؛
+سران جمهوری اسلامی تحت تعقیبن، بخش زیادی از توانایی‌های نظامی حکومت نابود شده، برنامه هسته‌ای سال‌ها عقب افتاده و اقتصاد در حال فروپاشیه.
+شهروندان هنوز درک نکردن که رهبران افراطیشون اونارو تو چه فاجعه‌ای درگیر کردن.
+
+@DrTeL
+</div>
+
+## drtel — post 59130
+
+<div align="center">
+  <a href="telegram/content/drtel_59130_1779911606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره ایران:
+
+ما در مورد کاهش تحریم ها یا دادن پول صحبت نمی کنیم؛
+ما کنترل پولی رو داریم که اونا میگن برای خودشونه و اگه درست رفتار کنن پولوشونو بهشون میدیم.
+اونا شروع به دادن چیزهایی می کنن که باید به ما بدن، اگر این کار رو انجام بدن، عالیه.
+اگر این کار رو نکنن، هگست کارشونو تموم میکنه[بهشون حمله میکنیم].
+
+@DrTeL
+</div>
+
+## drtel — post 59129
+
+<div align="center">
+  <img src="telegram/content/drtel_59129_1779911608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدا و سیما :
+
+شرط جدید ایران واسه توافق با آمریکا اینه که اونا بايد 300 میلیارد دلار غرامت به ما بدن!
+
+@DrTeL
+</div>
+
+## drtel — post 59128
+
+<div align="center">
+  <a href="telegram/content/drtel_59128_1779911609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ : ایران یا توافق میکنه یا کار رو تموم‌ میکنیم.
+ایران خیلی جدی دنبال توافقه، واقعاً خیلی میخوان به توافق برسن.
+تا الان هنوز به نتیجه نرسیدن، ما ازش راضی نیستیم ولی خواهیم شد؛ یا این یا مجبور میشیم کار رو کامل تموم کنیم.
+اونا از روی ناتوانی دارن مذاکره میکنن، شاید مجبور بشیم برگردیم و کار رو تموم کنیم؛ شاید هم نه.
+اونا دیگه نیروی دریایی و هوایی ندارن، و بسیاری از افرادی که کشور رو به سمت شرایط بسیار بد می‌بردن ،دیگه سرکار نیستن، رهبری‌شون از بین رفته.
+@DrTeL
+</div>
+
+## drtel — post 59127
+
+<div align="center">
+  <img src="telegram/content/drtel_59127_1779911611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+⚽️ فینال لیگ‌کنفرانس اروپا
+
+[ کریستال‌پالاس 
+⚽️ - 
+⚽️ رایووایکانو ]
+
+⏰ امشب ساعت ۲۲:۳۰
+
+
+🔗 این دیدار هیجان‌انگیز رو در سایت اسپورت نود با بالاترین ضرایب پیش‌‌بینی کنید.
+
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران جدید، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس :
+
+احتمالا ترامپ تا چند ساعت دیگه اعلام می‌کنه که با ایران به توافق نهایی رسیدیم!
+
+به حرفش گوش نکنید میخواد فشار الکی بیاره، هنوز خیلی از مسائل حل نشده.
+
+@DrTeL
+</div>
+
+## drtel — post 59125
+
+<div align="center">
+  <img src="telegram/content/drtel_59125_1779911612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درحالی که همه خبرگزاریا دارن خبر از توافق میدن، ترامپ یه پست از روزنامه جروزالم پست منتشر کرده که توش درباره "سرکوب و شکنجه های جنسی معترضان ایران توسط حکومت" صحبت شده.
+
+@DrTeL
+</div>
+
+## drtel — post 59124
+
+<div align="center">
+  <a href="telegram/content/drtel_59124_1779911613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همچنان علیرضا جی‌جی توی آهنگ "بابام عمومه" :
+</div>
+
+## drtel — post 59123
+
+<div align="center">
+  <a href="telegram/content/drtel_59123_1779911615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علیرضا جی‌جی، رپری که به تازگی اومده ایران :
+
+واقعا برام عجیبه که جوون‌ها چطور ابی، داریوش، گوگوش و... رو گوش میکنن!
+من اصلا نمی‌فهمم چی‌میگن، مثلا پوستِ شیر ابی؛ چی میگه اصلا؟
+پاپ‌خون‌های ایرانی چون خیلی وقته ایران نیومدن، هنوز تو ادبیات 50 سال پیش گیر کردن.
+من نمیذارم بچم اینارو گوش بده چون مخش رو شست و شو میدن.
+آهنگ‌هاشون خیلی سبک و چرت پرته..
+
+@DrTeL
+</div>
+
+## drtel — post 59122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عشقم پزشکیان از بند انفرادی به عمومی منتقلمون کرد
+</div>
+
+## drtel — post 59121
+
+<div align="center">
+  <a href="telegram/content/drtel_59121_1779911617.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو اینستاگرام دارن از پزشکیان بُت میسازن؛
+
+چرا؟ چون بعد 88 روز، اینترنتی رو که ساده‌ترین حق هر شهروند هست رو به صورت فیلتر شده برگردونده...
+
+@DrTeL
+</div>
+
+## drtel — post 59120
+
+<div align="center">
+  <img src="telegram/content/drtel_59120_1779911619.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 
+🇮🇷 آمریکا به کاروان تیم ملی فوتبال ایران ویزا داد، ولی ساعتی!
+قبلا قرار بود بازیکن‌ها تو ایالت آریزونای آمریکا مستقر بشن، ولی ترامپ گفت دوست ندارم اینا تو کشور ما بخوابن!
+حالا با هماهنگی فیفا و آمریکا، کاروان تیم ملی قراره تو شهر مرزی تیخوانای مکزیک🇲🇽 مستقر بشه و واسه هر بازی، از مکزیک به آمریکا سفر کنه و بلافاصله بعد بازی، خاک آمریکا رو ترک کنه.
+نکته‌ای که هست اینه که تیخوانا به دلیل فعالیت شدید کارتل‌های مواد مخدر، قاچاق، خشونت‌های خونین و باندهای تبهکار؛ همیشه یکی از بالاترین نرخ های قتل و جرم و جنایت رو تو جهان داشته...
+
+@FUTBALLI18 | خبر آنلاین
+</div>
+
+## drtel — post 59119
+
+<div align="center">
+  <img src="telegram/content/drtel_59119_1779911620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق آخرین آمار، بیش از 13 میلیون و 600 هزار نفر سینگل
+🧼 تو کشور داریم‌.
+
+@DrTeL
+</div>
+
+## drtel — post 59118
+
+<div align="center">
+  <img src="telegram/content/drtel_59118_1779911621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس :
+اینترنت ایران الان حدود 24 ساعته که کم‌کم داره وصل میشه، ولی هنوز کلی فیلتر و محدودیت روشه نسبت به قبلِ دی‌ماه؛
+
+همچنین روی پیام‌رسان‌ها و اپ‌استورها هم فیلترینگ و محدودیت‌هایِ جدید گذاشتن.
+
+@DrTeL
+</div>
+
+## drtel — post 59117
+
+<div align="center">
+  <img src="telegram/content/drtel_59117_1779911621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته کارشناسان امنیت سایبری :
+هکر‌ها الان فقط با یه عکس واضح از دست شما که مثلا از نزدیک گرفته شده، میتونن اثر انگشت شمارو دربیارن و ازش سوءاستفاده کنن؛
+دوربینای جدید گوشی و هوش مصنوعی میتونن خط‌های ریز اثر انگشتو واضح کنن و حتی نسخه فیکش رو بسازن؛ بعدشم باهاش قفل گوشی، اپ بانکی یا حتی قفل هوشمند شمارو باز کنن.تو چین حتی اینو با یه سلفی معمولی تو تلویزیون تست کردن و نشون ملت دادن.
+واسه همین بهتره عکسایی که نوک انگشتاتون توش واضحه رو کمتر پخش کنید یا بخش انگشتا رو محو کنید، و واسه امنیت بیشترم از Face ID یا رمزای قوی استفاده کنید.
+
+@DrTeL | Tom's Guide
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 15:34
 ---
 
