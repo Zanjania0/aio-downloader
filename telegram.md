@@ -7,6 +7,312 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 03:19
+---
+
+## SoftNetConnect — post 10898
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10898_1779925784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️گزارش های مردمی خبر از سه انفجار در بندر عباس میدن @SofyNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشماتون بریزه
+😧
+
+
+🚨
+⭕️
+🆕 فیلمی از حملات آمریکا به بندرعباس امشب. این فیلم گزارش ما درباره حضور جنگنده‌ها در این حملات را تأیید می‌کند.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10896
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10896_1779925784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕امکان 95 درصد خبر ترور علی عظمایی فرمانده نیروی دریایی سپاه که جانشین علیرضا تنگسیری هست فیک نیوزه ولی خبرش کارش میکنیم @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕امکان 95 درصد خبر ترور علی عظمایی فرمانده نیروی دریایی سپاه که جانشین علیرضا تنگسیری هست فیک نیوزه ولی خبرش کارش میکنیم @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕رویترز : ارتش ایالات متحده حملات جدیدی به یک پایگاه نظامی ایرانی که تهدیدی برای نیروهای آمریکایی و کشتی‌های تجاری در تنگه هرمز بود، انجام داد. ارتش آمریکا همچنین در جریان این حملات چندین پهپاد ایرانیو رهگیری و سرنگون کرد. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕رویترز : ارتش ایالات متحده حملات جدیدی به یک پایگاه نظامی ایرانی که تهدیدی برای نیروهای آمریکایی و کشتی‌های تجاری در تنگه هرمز بود، انجام داد.
+
+ارتش آمریکا همچنین در جریان این حملات چندین پهپاد ایرانیو رهگیری و سرنگون کرد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10892
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10892_1779925785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕امکان 95 درصد خبر ترور علی عظمایی فرمانده نیروی دریایی سپاه که جانشین علیرضا تنگسیری هست فیک نیوزه ولی خبرش کارش میکنیم
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10891
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_10891_1779925786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖ارتش اسرائیل یک فرمانده دیگر حزب‌الله ترور کرد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴همزمان با انفجار در بندر عباس نزدیک به سی خبر از انفجار در لبنان اومد ، اسرائیل دیوانه وار داره حزب الله بمبارون می‌کنه
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍نیروی هوافضای سپاه پاسداران در حالت آماده باش کامل قرار گرفته است 
+🚨
+👍یگان پدافندی ارتش جمهوری اسلامی ایران در حالت هشدار قرار گرفته است @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍نیروی هوافضای سپاه پاسداران در حالت آماده باش کامل قرار گرفته است
+
+
+🚨
+👍یگان پدافندی ارتش جمهوری اسلامی ایران در حالت هشدار قرار گرفته است
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+💢
+💢
+💢
+</div>
+
+## SoftNetConnect — post 10886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 ژئوپولتیک واچ و برخی منابع محلی : گزارش‌های تأیید نشده‌ای از هدف قرار گرفتن یک خودرو در جریان این حمله وجود دارد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴خلاصه درگیری امشب : بازم بین سپاه و آمریکاست امکان زیاد بازم داخل خلیج فارس و تنگه هرمز
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨خبرهای ضد و نقضیی از فعال شدن پدافند اصفهان میاد @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕 گزارش‌های اولیه حاکی از آن است که ایالات متحده یک عملیات دفاعی را در بندرعباس ایران انجام داده است. یک مقام آمریکایی گفت: «ایالات متحده برای حفاظت از منافع منطقه‌ای خود اقدام خواهد کرد و این بر آتش‌بس تأثیر نمی‌گذارد. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕 گزارش‌های اولیه حاکی از آن است که ایالات متحده یک عملیات دفاعی را در بندرعباس ایران انجام داده است.
+
+یک مقام آمریکایی گفت: «ایالات متحده برای حفاظت از منافع منطقه‌ای خود اقدام خواهد کرد و این بر آتش‌بس تأثیر نمی‌گذارد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 هواپیمای هشدار زودهنگام آمریکایی E-3G، هواپیمای گشت دریایی P-8A، هواپیماهای سوخت‌رسانی و جنگنده‌های فعال همزمان با شنیده شدن صدای انفجارها در بندرعباس ایران، بر فراز خلیج فارس در حال پرواز بودند.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59145
+
+<div align="center">
+  <img src="telegram/content/drtel_59145_1779925788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما هم حملات آمریکا و انفجارهای امشب تو بندرعباس رو تأیید کرد :
+
+@DrTeL
+</div>
+
+## drtel — post 59144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز:
+آمریکا علاوه بر اینکه اون سایت نظامی ایران که تهدیدی واسه عبور کشتی‌ها از تنگه هرمز بود رو زد، یسری پهپادهای ایرانی رو هم رهگیری و نابود کرد.
+
+@DrTeL
+</div>
+
+## drtel — post 59143
+
+<div align="center">
+  <a href="telegram/content/drtel_59143_1779925789.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨رویترز به نقل از یه مقام آمریکایی :
+
+ارتش آمریکا حملات هوایی جدیدی رو علیه یه سایت نظامی ایران انجام داد!
+
+@DrTeL
+</div>
+
+## drtel — post 59142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری معتبر فارس :
+تو شرق بندرعباس، تا الان صدای 3 انفجار شنیده شده که هنوز علت دقیقش مشخص نشده – همزمان با این انفجارها هم واسه چند دقیقه پدافند این شهر فعال شد.
+
+@DrTeL
+</div>
+
+## drtel — post 59141
+
+<div align="center">
+  <img src="telegram/content/drtel_59141_1779925789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارشات؛ گوگل پلی
+📱 و اپ استور
+📱 تو اکثر مناطق کشور و روی همه‌ی اینترنتا رفع فیلتر شدن.
+
+@DrTeL
+</div>
+
+## drtel — post 59140
+
+<div align="center">
+  <img src="telegram/content/drtel_59140_1779925790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حاجی صادقی، نماینده مجتبی خامنه‌ای تو سپاه:
+
+ایران تو طول جنگ می‌تونست ضربات سنگین‌تری به آمریکا تو منطقه بزنه ولی چون مردم خاورمیانه آسیب می‌دیدن، مجتبی قبول نکرد.
+
+@DrTeL
+</div>
+
+## drtel — post 59139
+
+<div align="center">
+  <img src="telegram/content/drtel_59139_1779925791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌ی تانکر ترکرز | Tanker Trackers:
+
+جمهوری‌اسلامی حدود 60 میلیون بشکه‌ی نفت خام به ارزش 6 میلیارد دلار رو چون تو محاصره‌ی نیروی دریایی آمریکاست هنوز نتونسته بفروشه.
+
+@DrTeL
+</div>
+
+## drtel — post 59138
+
+<div align="center">
+  <img src="telegram/content/drtel_59138_1779925792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## drtel — post 59136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پاول دروف عکس خودش رو تو ایکس پست کرده و نوشته؛
+
+Daddy 😩😩💦💦
+
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 23:23
 ---
 
