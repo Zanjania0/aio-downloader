@@ -7,6 +7,420 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 00:36
+---
+
+## SoftNetConnect — post 10980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: ایرانی‌ها مذاکره‌کنندگان زیرک و باهوشین ولی کارت‌ها دست ماست.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبر اختصاصی : سپاه چند موشک کروز ضد کشتی از نوع ابو مهدی المهندس به سمت چهار کشتی که قصد داشتن بدون اجازه از تنگه هرمز شلیک کردند @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبر اختصاصی : سپاه چند موشک کروز ضد کشتی از نوع ابو مهدی المهندس به سمت چهار کشتی که قصد داشتن بدون اجازه از تنگه هرمز شلیک کردند @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبر اختصاصی : سپاه چند موشک کروز ضد کشتی از نوع ابو مهدی المهندس به سمت چهار کشتی که قصد داشتن بدون اجازه از تنگه هرمز شلیک کردند @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕خبر اختصاصی : سپاه چند موشک کروز ضد کشتی از نوع ابو مهدی المهندس به سمت چهار کشتی که قصد داشتن بدون اجازه از تنگه هرمز شلیک کردند
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕منابع عبری : گزارش های اولیه حاکی از انفجار در تنگه هرمز میدن منتظر تایید منابع داخلی پروکسی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10974
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕خبرگزاری نایا خبر از این میده چند موشک ضد کشتی به سمت ناوهای آمریکایی شلیک شده
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕منابع عبری : گزارش های اولیه حاکی از انفجار در تنگه هرمز میدن منتظر تایید منابع داخلی پروکسی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+♨️ منابع عبری میگن شلیک موشک از پایگاه موشکی در جم بوشهر شناسایی شده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕منابع عبری : گزارش های اولیه حاکی از انفجار در تنگه هرمز میدن
+
+منتظر تایید منابع داخلی
+
+پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️منابع محلی خبر از صدای انفجار مهیبی در بندر کنگان و قشم میدن @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️منابع محلی خبر از صدای انفجار مهیبی در بندر کنگان و قشم میدن @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️منابع محلی خبر از صدای انفجار مهیبی در بندر کنگان و قشم میدن @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10966
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️منابع محلی خبر از صدای انفجار مهیبی در بندر کنگان و قشم میدن @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️منابع محلی خبر از صدای انفجار مهیبی در بندر کنگان و قشم میدن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 10963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت : همه جا صحبت از یک یادداشت «تفاهم» برای آتش‌بس ۶۰ روزه است. ابتدا اکسیوس خبرش رو منتشر کرد و کمی بعد کاخ سفید هم تاییدش کرد. طبق این یادداشت «تفاهم»، جمهوری‌اسلامی باید تنگه هرمز رو بدون قید و شرط باز کنه، آمریکا هم به مرور محاصره دریایی رو برداره…
+</div>
+
+## SoftNetConnect — post 10962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت :
+
+همه جا صحبت از یک یادداشت «تفاهم» برای آتش‌بس ۶۰ روزه است.
+
+ابتدا اکسیوس خبرش رو منتشر کرد و کمی بعد کاخ سفید هم تاییدش کرد.
+
+طبق این یادداشت «تفاهم»، جمهوری‌اسلامی باید تنگه هرمز رو بدون قید و شرط باز کنه، آمریکا هم به مرور محاصره دریایی رو برداره و در طول این مدت ۶۰ روز، دو طرف مذاکره کنن، ۴۰۰ کیلو اورانیوم و اصل غنی‌سازی تعیین تکلیف بشه تا به «توافق» برسن.
+
+نکته اصلی اما اینجاست که ترامپ هنوز یادداشت «تفاهم» رو امضا نکرده.
+
+نظر من همچنان اینه که «هیچ “توافقی” رو متصور نیستم.»
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+tg://proxy?server=13.61.181.60&port=80&secret=dd104462821249bd7ac519130220c25d09
+
+
+پروکسی با سرعت بالا
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59209
+
+<div align="center">
+  <img src="telegram/content/drtel_59209_1780002371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسمی : صداوسیما هم خبر کشته شدن علی‌خامنه‌ای رو تایید کرد. @DrTeL
+</div>
+
+## drtel — post 59208
+
+<div align="center">
+  <img src="telegram/content/drtel_59208_1780002372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس :
+چند دقیقه پیش نیروهای مسلح از جنوب کشور یه‌سری موشک به سمت اهداف مشخص شلیک کردن؛
+هنوز دقیق معلوم نیست این موشکا کجا رو زدن، ولی بعضیا میگن احتمال داره درگیری تو آب‌های خلیج فارس باشه.
+یه‌سری رسانه هم گفته بودن تو بوشهر و هرمزگان صدای انفجار اومده، اما فعلاً بررسی‌ها نشون میده خبری از هیچ انفجاری نبوده.
+@DrTeL
+</div>
+
+## drtel — post 59207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری ایلنا :
+
+دقایقی پیش سپاه به 4 تا شناور که قصد عبور بدون هماهنگی از تنگه هرمز رو داشتن، شلیک کرد.
+
+@DrTeL
+</div>
+
+## drtel — post 59206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها چیزی که تغییر دادید رژیم غذایی ما بود کصکشا
+</div>
+
+## drtel — post 59205
+
+<div align="center">
+  <img src="telegram/content/drtel_59205_1780002372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸اسکات بسنت، وزیر خزانه داری آمریکا:
+
+تو ایران تغییر رژیم نداشتیم ولی رژیم رو تغییر دادیم..
+
+@DrTeL
+</div>
+
+## drtel — post 59203
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 3 شب دیگه تو تاریخ «10 خرداد | 31 May» قراره پدیده "ماه کامل آبی
+🌚" رخ بده.
+
+@DrTeL
+</div>
+
+## drtel — post 59202
+
+<div align="center">
+  <img src="telegram/content/drtel_59202_1780002373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل
+🇮🇱 به فارسی:
+
+‏2500 سال پیش، کوروش بزرگ یهودی‌هارو از اسارت آزاد کرد. این فقط تاریخ نیست... این ریشه دوستی عمیق بین مردم ایران و یهودی‌هاس.
+
+ما و شما ثابت کردیم که این پیوند عمیق و موندگاره و تو آینده‌ای نزدیک این دوستی مثل دوران کوروش بزرگ شکوفا خواهد شد.
+
+@DrTeL
+</div>
+
+## drtel — post 59201
+
+<div align="center">
+  <img src="telegram/content/drtel_59201_1780002373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران و آمریکا رو یه تفاهم نامه 60 روزه واسه تمدید آتش بس و شروع مذاکرات هسته‌ای به توافق اولیه رسیدن، ولی ترامپ هنوز تأیید نهایی نداده. + بعضی بندهای این تفاهمنامه: عبور کشتی ها از تنگه هرمز باید بدون محدودیت باشه؛ یعنی نه عوارضی گرفته بشه و نه مزاحمتی…
+</div>
+
+## drtel — post 59199
+
+<div align="center">
+  <a href="telegram/content/drtel_59199_1780002374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز تولد "مارکو روبیو" وزیر خارجه آمریکا بوده و حساب وزارت خارجه آمریکا تو توییتر با این ویدیو تولدشو تبریک گفته.[ویدیو سمت راست]
+اعضای دولت ترامپ هم با کیک تولد برای روبیو تولد گرفتن.[ ویدیو سمت چپ]
+
+@DrTeL
+</div>
+
+## drtel — post 59198
+
+<div align="center">
+  <a href="telegram/content/drtel_59198_1780002375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این ویدئو از کمک به موقع و حرفه‌ای این هموطن به یه جوجه گنجشک تو کمتر از دو روز، میلیونی ویو خورده؛
+
+به افتخار شجاعت و حسِ مسئولیتش بکوب لایکو❤️
+
+
+@DrTeL
+</div>
+
+## drtel — post 59197
+
+<div align="center">
+  <img src="telegram/content/drtel_59197_1780002377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🇫🇷 مسابقات گرنداسلم رولان‌گاروس رو با بالاترین ضرایب در اسپورت نود پیش‌بینی کنید.
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59196
+
+<div align="center">
+  <img src="telegram/content/drtel_59196_1780002377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکبری، معاون وزیر ارتباطات:
+بهبود کیفیت اینترنت چند روزی زمان میبره پس صبور باشید.
+بوس.
+
+@DrTeL
+</div>
+
+## drtel — post 59194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صفحه اسرائیل
+🇮🇱به فارسی خطاب به ایرانی‌هایی که تازه اینترنتشون وصل شده:
+
+وقتی شما نبودید؛
+شمخانی بدون سر خاک شد.
+از لاریجانی فقط یه دست موند.
+
+@DrTeL
+</div>
+
+## drtel — post 59191
+
+<div align="center">
+  <a href="telegram/content/drtel_59191_1780002378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل
+🇮🇱 از دیروز به دستور نتانیاهو حملات و پیشروی‌هاشو به سمت جنوب لبنان
+🇱🇧 خیلی بیشتر کرده به طوری که از منطقه زرد رنگ [که قرار بود جلوتر نرن] هم جلوتر رفتن. اسرائیل قراره سایت‌های پهپادهای فیبرنوری که تو این منطقه هستن و سربازای اسرائیلی رو داخل منطقه…
+</div>
+
+## drtel — post 59190
+
+<div align="center">
+  <img src="telegram/content/drtel_59190_1780002378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران و آمریکا رو یه تفاهم نامه 60 روزه واسه تمدید آتش بس و شروع مذاکرات هسته‌ای به توافق اولیه رسیدن، ولی ترامپ هنوز تأیید نهایی نداده.
+
++ بعضی بندهای این تفاهمنامه:
+عبور کشتی ها از تنگه هرمز باید بدون محدودیت باشه؛ یعنی نه عوارضی گرفته بشه و نه مزاحمتی ایجاد بشه.
+ایران باید طی 30 روز همه مین‌های دریایی موجود تو تنگه هرمز رو جمع کنه.
+ایران تعهد میده که سمت ساخت سلاح هسته‌ای نره.
+محاصره دریایی آمریکا هم به تدریج و متناسب با برگشت حمل و نقل تجاری، لغو میشه.
+آمریکا هم متعهد میشه درباره کاهش تحریم ها و آزادسازی پولهای بلوکه شده ایران مذاکره کنه.
+همچنین مکانیزمی واسه کمک به ورود کالاها و کمک‌های انسانی به ایران هم در نظر گرفته شده.
+@DrTeL | Axios
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 16:21
 ---
 
