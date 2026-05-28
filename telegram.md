@@ -7,6 +7,429 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 16:21
+---
+
+## SoftNetConnect — post 10937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+😂بیانیه متنی مجتبی خامنه‌ای: دشمن بعد از جنگ و فشار اقتصادی و محاصره سیاسی، به دنبال اینه که بین مردم تفرقه بندازه و جامعه رو دو تیکه کنه تا شکست‌های نظامیشو جبران کنه و کشور رو به زانو دربیاره.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10935
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_10935_1779972662.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🌏سنتکام در بیانیه‌ای اتفاقات دیشب را نقض آتش‌بس خواند.
+
+بیانیه سنتکام:
+ساعت ۱۰:۱۷ شب به وقت شرقی آمریکا [۵:۴۷ صبح ایران] روز ۲۷ مه،
+ایران یک موشک بالستیک به سمت کویت شلیک کرد که توسط نیروهای کویتی با موفقیت رهگیری و منهدم شد.
+این نقض فاحش آتش‌بس توسط رژیم ایران، چند ساعت پس از آن رخ داد که نیروهای ایرانی پنج پهپاد انتحاری را به پرواز درآوردند که تهدیدی جدی در تنگه هرمز و اطراف آن ایجاد کرده بودند.
+همه پهپادها توسط نیروهای آمریکایی با موفقیت رهگیری شدند.
+نیروهای آمریکایی همچنین از شلیک پهپاد ششم از یک مرکز کنترل زمینی ایرانی در بندرعباس جلوگیری کردند.
+فرماندهی مرکزی ایالات متحده و شرکای منطقه‌ای همچنان هوشیار و با تدبیر عمل می‌کنند و به دفاع از نیروهای خود و منافع‌مان در برابر تجاوزات بی‌توجیه ایران ادامه می‌دهیم.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+پروکسی با سرعت بالا
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه تنها کمتر نشدن بیشترم شدن
+🤗 
+🚨
+🪽حدود ۶۰ فروند هواپیمای سوخت‌رسانی از نوع KC-135 و KC-46 متعلق به نیروی هوایی آمریکا همچنان در فرودگاه بن‌گوریون در مرکز اسرائیل مستقر هستند، به اضافه ۱۶ تا ۱۸ فروند هواپیمای دیگر در فرودگاه ایلات در جنوب. @SoftNetConnect |…
+</div>
+
+## SoftNetConnect — post 10930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕شبکه 12 اسرائیل: ناوگان هوایی آمریکا ظرف 72 ساعت به پایگاه‌های خود در اروپا منتقل خواهد شد و در صورت از سرگیری درگیری با ایران، هواپیماها در حالت آماده‌باش برای بازگشت به فرودگاه بن گوریون قرار خواهند گرفت @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ%3D%3D
+
+پروکسی با سرعت بالا
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+پروکسی با سرعت بالا
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕ان‌بی‌سی : پنتاگون فهرست جدیدی از اهداف نظامی ایران تهیه کرده
+
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کره شمالی درخواست آمریکا برای خلع سلاح‌ هسته‌ای را رد کرد
+
+پروکسی پروکسی پروکسی پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ%3D%3D
+
+متصل با سرعت بالا 
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d متصل با سرعت بالا 
+🔝 @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10923
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+متصل با سرعت بالا 
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ%3D%3D
+
+متصل با سرعت بالا
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+متصل با سرعت بالا 
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕وال استریت ژورنال به نقل از مقام ایرانی: ذخایر ارزی کشور رو به اتمام است و برای بیشتر از سه ماه آینده کافی نیست!! @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رویترز: قطعی اینترنت ایران، طولانی‌ترین قطعی اینترنت در تاریخ معاصر جهان بود و زندگی میلیون‌ها نفر را تحت تأثیر قرار داد.
+
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🆕وال استریت ژورنال به نقل از مقام ایرانی: ذخایر ارزی کشور رو به اتمام است و برای بیشتر از سه ماه آینده کافی نیست!! @SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59181
+
+<div align="center">
+  <a href="telegram/content/drtel_59181_1779972663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انصافا همه حرکات خوب و کابردی بودن ولی ؛
+
+
+امان امان از حرکت گربه گاو و مار کبری، روح آدم رو تازه میکنه...
+
+@FUTBALLI18
+</div>
+
+## drtel — post 59180
+
+<div align="center">
+  <img src="telegram/content/drtel_59180_1779972665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واکنش سپاه به ترور دو فرمانده ارشد حماس تو غزه به دست ارتش اسرائیل:
+
+صلحی که ترامپِ خبیث و قمارباز ازش حرف می‌زنه، چیزی جز کشتار، قتل و ترور نیست؛ منطقه وقتی روی آرامش رو می‌بینه که اسرائیل از رو زمین محو بشه.
+
+@DrTeL
+</div>
+
+## drtel — post 59179
+
+<div align="center">
+  <img src="telegram/content/drtel_59179_1779972666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 بیانیه سنتکام درباره اتفاقات دیشب :
+
+دیشب ایران یه موشک بالستیک به سمت کویت
+🇰🇼 شلیک کرد که توسط پدافند کویت رهگیری و منهدم شد.
+این اقدام، نقض جدی آتش‌بس بود؛ اونم فقط چند ساعت بعد از اینکه نیروهای ایرانی 5 پهپاد انتحاری رو اطراف تنگه هرمز به پرواز درآوردن که تهدید محسوب میشدن.
+البته که همه این پهپادا توسط نیروهای آمریکایی ساقط شدن و حتی جلوی پرتاب ششمین پهپاد هم از یه سایت کنترل زمینی تو بندرعباس گرفته شد.
+نیروهای آمریکا و متحداش تو منطقه همچنان آماده‌باش هستن و واسه دفاع از نیروها و منافعشون مقابل «اقدامات تهاجمی و غیرموجه ایران» هوشیار باقی میمونن.
+
+@DrTeL
+</div>
+
+## drtel — post 59178
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب چخبر رفقا
+</div>
+
+## drtel — post 59175
+
+<div align="center">
+  <img src="telegram/content/drtel_59175_1779972667.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجتبی خامنه‌ای : اسرائیل🇮🇱 15 سال آینده رو نخواهد دید! غدّه‌ی سرطانی اسرائیل به مراحل پایانی عمرش نزدیک شده و به فضل الهی و طبق آینده‌نگری 10 سال قبل پدرم، 25 سال بعد از اون تاریخ رو نخواهد دید، ان‌شاءالله. @DrTeL
+</div>
+
+## drtel — post 59174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه روزی ازم 50 میلیون میخوای و من 5 میلیارد برات می‌فرستم.
+اما فعلا یه 500 میلیون برام بفرست تا ببینم واقعاً لیاقت اون آینده رو داری یا نه
+</div>
+
+## drtel — post 59173
+
+<div align="center">
+  <img src="telegram/content/drtel_59173_1779972668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مشاور مجتبی خامنه‌ای :
+این دفعه دیگه خط قرمزمون مشخصه، صرفِ امضا و کاغذبازی، تضمین هیچ توافقی با آمریکا نیست؛
+
+تضمین واقعی هر توافقی، تنگه هرمزه.
+
+@DrTeL
+</div>
+
+## drtel — post 59170
+
+<div align="center">
+  <a href="telegram/content/drtel_59170_1779972669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خدایا شکرت، همه مشکلاتمون حل شد؛ مینا نامداری از شهاب کون حامله شده. @DrTeL
+</div>
+
+## drtel — post 59169
+
+<div align="center">
+  <img src="telegram/content/drtel_59169_1779972671.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+⚡️هر مسابقه یک فرصت، هر انتخاب یک هیجان!
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59168
+
+<div align="center">
+  <img src="telegram/content/drtel_59168_1779972672.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو بنگلادش
+🇧🇩 یه گاومیشی که از نظر استایل و قیافه‌ای شباهت زیادی به ترامپ داره حسابی مورد توجه مردم دنیا و رسانه‌ها قرار گرفته، طوری که شبکه خبر استرالیا به صورت خیلی جدی خبرشو کار کرده؛ نکته جالب‌تر این ماجرا اینجاست که؛ اسم این گاو بیچاره رو «دونالد ترامپ»…
+</div>
+
+## drtel — post 59167
+
+<div align="center">
+  <img src="telegram/content/drtel_59167_1779972673.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 28 May روز جهانی همبرگره
+🍔
+
+
++این پست رو واسه هرکی فرستادی، امشب باید یه همبرگر مهمونت کنه، اگه نکرد، بدون اونقدرا هم که فکر می‌کردی دوستت نداره؛ پس سریع بلاکش کن.
+
+@DrTeL
+</div>
+
+## drtel — post 59166
+
+<div align="center">
+  <a href="telegram/content/drtel_59166_1779972674.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درحالی که همه خبرگزاریا دارن خبر از توافق میدن، ترامپ یه پست از روزنامه جروزالم پست منتشر کرده که توش درباره "سرکوب و شکنجه های جنسی معترضان ایران توسط حکومت" صحبت شده. @DrTeL
+</div>
+
+## drtel — post 59165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتو ۱ روز قبل از روز جهانی خودارضایی وصل کردن که مردم راحت برن تو سایتای پورن
+دولت از این مردمی تر؟
+</div>
+
+## drtel — post 59164
+
+<div align="center">
+  <img src="telegram/content/drtel_59164_1779972675.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 28 May، روزِ خود ارضاییه.
+(Masturbation Day)
+
+
+@DrTeL | sequoia‌ health
+</div>
+
+## drtel — post 59162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازاین نت و وصل کردن، این بچه‌سالا از ایتا و روبیکا پا شدن اومدن اینجا و شروع کردن به ری اکت فیک زدن
+</div>
+
+## drtel — post 59161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمی‌دونم چرا احساس میکنم اینطور موشک پرونی ها باعث محکم شدن آتش بس هم میشه! 💆🏻‍♀️ نشون میده این آتش بس چیزی نیست که با دوتا موشک پروندن خودسرانه نقض بشه
+</div>
+
+## drtel — post 59160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خاورمیانه چیه که از دیشب دارن همو میکوبن بازم‌ آتش بس نقض نمیشه
+</div>
+
+## drtel — post 59157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ستاد ارتش کویت
+🇰🇼: صداهای انفجاری که شنیده شد، بخاطر فعال شدن پدافند هوایی و رهگیری حملات دشمن بوده. @DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 03:19
 ---
 
