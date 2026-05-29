@@ -7,6 +7,321 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 14:25
+---
+
+## SoftNetConnect — post 10990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕سیتنا: سهم IPV6 در اینترنت ایران همچنان نزدیک به صفر؛ بازگشت کامل به IPv4 فشار بر شبکه را افزایش داده است
+
+
+🔴بررسی داده‌های شبکه طی ۴۸ ساعت اخیر نشان می‌دهد سهم IPv6 در ترافیک اینترنت ایران همچنان بدون تغییر محسوس در محدوده نزدیک به صفر باقی مانده است؛ وضعیتی که به گفته کارشناسان، فشار مضاعفی بر زیرساخت IPv4 و سامانه‌های NAT وارد کرده و مانعی جدی برای رسیدن شبکه اینترنت کشور به پایداری کامل محسوب می‌شود
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢Proxy
+
+https://t.me/proxy?server=195.254.165.151&port=9443&secret=FgMBAgABAAH8AwOG4kw63Q==
+
+https://t.me/proxy?server=195.254.165.251&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+https://t.me/proxy?server=195.254.165.253&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+https://t.me/proxy?server=195.254.165.251&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+https://t.me/proxy?server=195.254.165.250&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+
+tg://proxy?server=195.254.165.250&port=25565&secret=dd79e344818749bd7ac519130220c25d09
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴وزارت خزانه داری امریکا تحریم‌های جدیدی را علیه فروش نفت ایران اعمال کرد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕 اسرائیل هیوم در گزارشی نوشت موساد در سال‌های اخیر شاخه‌ای محرمانه برای نزدیک‌تر کردن سقوط جمهوری اسلامی ایجاد کرده است.
+
+
+به گفته منابع آگاه، رییس موساد متقاعد شده است که اگر ترامپ با تهران توافق نکند و محاصره دریایی را ادامه دهد، جمهوری اسلامی تا پایان سال ۲۰۲۶ سقوط می‌کند.
+
+ماموریت ابتدایی این شاخه که در سال ۲۰۲۱ و پس از آغاز ریاست داوید بارنیا بر موساد ایجاد شد، عملیات‌ هدفمند برای کنار زدن مقام‌های ارشد جمهوری اسلامی بود، اما به‌تدریج به بخشی از راهبرد گسترده‌تر موساد برای «تغییر رژیم» تبدیل شد.
+
+رییس پیشین این شاخه به اسرائیل هیوم گفت موساد در گذشته بیشتر از طریق ترور افراد را حذف می‌کرد، اما اکنون افشای اطلاعات شرم‌آور یا آسیب‌زننده درباره مقام‌ها می‌تواند آن‌ها را از حلقه قدرت خارج کند؛ روشی که به گفته او «ارزان‌تر و ساده‌تر از عملیات ترور» است.، مقام‌های موساد معتقدند عملیات‌های اخیر علیه ایران فقط یک مرحله در مسیر سقوط جمهوری اسلامی بوده است
+
+. رئیس پیشین شاخه نفوذ گفت این واحد اکنون با شدت بیشتری فعالیت می‌کند و هدف آن «سریع‌تر کردن ساعت شنی پایان حکومت است».
+
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی با سرعت بالا 
+🔝
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتبار العربیه به روایت زیر
+🤗
+
+
+🚨
+🔴 رئیس کمیسیون امنیت ملی: اورانیوم غنی‌شده‌مون رو به هیچ وجه به کشور ثالث منتقل نمی‌کنیم
+
+
+🆕شبکه العربیه به نقل از منابع آگاه گزارش داد جمهوری اسلامی می‌خواهد اورانیوم غنی‌سازی‌شده خود را به چین منتقل کند، مشروط بر آن‌که چین تضمین دهد این مواد را به آمریکا تحویل نخواهد داد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رویترز:
+ترامپ در شرایطی به دنبال پایان دادن به جنگ با ایران است که همزمان با دو فشار متضاد مواجه شده است. از یک سو افزایش قیمت انرژی و نگرانی از تبعات اقتصادی جنگ، کاخ سفید را به سمت دستیابی به توافق سوق می‌دهد و از سوی دیگر بخشی از جمهوری‌خواهان و متحدان سیاسی ترامپ خواهان ادامه فشار نظامی و جلوگیری از هرگونه امتیازدهی به جمهوری اسلامی هستند.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕کانال ۱۲ اسرائیل: ارتش اسرائیل داره خودش رو برای کمپین گسترده هوایی و زمینی تو لبنان آماده می‌کنه.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان خبرگزاری ها اغلبشون چه معتبر چه غیر معتبر خبرهای زرد میزارن که اصلا منبعش معلوم نیست یا سریع تکذیب میشه
+تا وقتی مراجع معتبر حرفی نزنن ما خبرهای فیک و سر در گم کننده نشر نمیدیم
+
+شبتون خوش
+🍾
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 10981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸جی دی ونس:
+
+هنوز زود است که بدانیم توافق با ایران چه زمانی حاصل می‌شود یا اصلا حاصل خواهد شد یا نه.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59231
+
+<div align="center">
+  <img src="telegram/content/drtel_59231_1780052159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 8 خرداد، روزِ املاکی‌هاست.
+
+@DrTeL
+</div>
+
+## drtel — post 59228
+
+<div align="center">
+  <a href="telegram/content/drtel_59228_1780052160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد از وصل شدن اینترنت، ویدیویی تو شبکه‌های مجازی درحال وایرال شدنه که گفته میشه؛ نیروهای گارد جاویدان (طرفداران رضا پهلوی) وسط شهر، با کلاشینکف، خیلی GTA و Call of Duty طور، دنبال یکی از نیروهای بسیج که گفته میشه تو اعتراضات دی‌ماه و سرکوب معترضین نقش…
+</div>
+
+## drtel — post 59227
+
+<div align="center">
+  <a href="telegram/content/drtel_59227_1780052164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد از وصل شدن اینترنت، ویدیویی تو شبکه‌های مجازی درحال وایرال شدنه که گفته میشه؛
+
+
+نیروهای گارد جاویدان (طرفداران رضا پهلوی) وسط شهر، با کلاشینکف، خیلی GTA و Call of Duty طور، دنبال یکی از نیروهای بسیج که گفته میشه تو اعتراضات دی‌ماه و سرکوب معترضین نقش داشته، می‌افتن و می‌گیرنش به رگبار :
+
+@DrTeL
+</div>
+
+## drtel — post 59226
+
+<div align="center">
+  <img src="telegram/content/drtel_59226_1780052167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🤐دیدار ششم از فینال کنفرانس غرب رو بین دوتیم سن‌آنتونیو اسپرز
+📀 و اوکلاهاما تاندر 
+🆗 رو در سایت اسپورت نود با آپشن‌های متنوع پیش‌بینی کنید.
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59225
+
+<div align="center">
+  <a href="telegram/content/drtel_59225_1780052168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست عجیب و مرموز اکانت کاخ سفید:
+
+LOADING = درحال بارگیری
+
+@DrTeL
+</div>
+
+## drtel — post 59223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام دکتر
+دکتر وقتی با وی پی ان های رایگان وصل میشی میری اکسپلور
+هیچ پستی از ۱۸،۱۹ نمیبینی
+همش از تجمعات شبانه تو ایران میبینی
+ولی وقتی کانفینگ میخری میری اکسپلور همه چی عوض میشه
+میتونی بگی تست کنن
+پس الکی نبود وصل کردن نت😔
+</div>
+
+## drtel — post 59221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفینگ‌ فروش ها نگران نباشید کمک در راه است
+</div>
+
+## drtel — post 59218
+
+<div align="center">
+  <img src="telegram/content/drtel_59218_1780052169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته کاربران؛ درحالِ حاضر و تو شرایط فعلی این فیلترشکن‌ها وصلن :
+
+biubiuVPN
+
+VPN Hotspot Shield: Secure VPN
+
+VPN - Fast VPN Super
+
+BeePass VPN
+
+Ostrich VPN - Proxy Master
+
+X-VPN: VPN Fast & Secure
+
+JumpJumpVPN: Fast & Secure
+
+VPN Windscribe: Fast & Secure
+
++ امن بودن این فیلترشکنا توسط ما تایید یا رد نمیشه.
+
+@DrTeL
+</div>
+
+## drtel — post 59216
+
+<div align="center">
+  <a href="telegram/content/drtel_59216_1780052170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شرکت Activision رسماً از نسخه جدید کالاف دیوتی با نام Call of Duty: Modern Warfare 4 رونمایی کرد؛ این بازی توی کره جریان داره و گرافیکش اونقدر واقعیه که بعضی صحنه‌هاش عملاً از فیلم سینمایی قابل تشخیص نیستن. همچنین اکتیویژن اعلام کرده MW4 برای کنسول‌های نسل…
+</div>
+
+## drtel — post 59212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شرکت Activision رسماً از نسخه جدید کالاف دیوتی با نام Call of Duty: Modern Warfare 4 رونمایی کرد؛
+این بازی توی کره جریان داره و گرافیکش اونقدر واقعیه که بعضی صحنه‌هاش عملاً از فیلم سینمایی قابل تشخیص نیستن.
+همچنین اکتیویژن اعلام کرده MW4 برای کنسول‌های نسل هشتم مثل PlayStation 4 و Xbox One منتشر نمیشه و فقط برای نسل جدید عرضه خواهد شد.
+@DrTeL | theverge
+</div>
+
+## drtel — post 59211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثابت کن
+</div>
+
+## drtel — post 59210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن خامنه ای زندست
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:36
 ---
 
