@@ -7,6 +7,430 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 23:26
+---
+
+## SoftNetConnect — post 11046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 کان اسرائیل: نتانیاهو خواستار از سرگیری حملات به ایران است
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢PROXY :
+
+https://t.me/proxy?server=5.75.222.133&port=8443&secret=dd104462821249bd7ac519130220c25d09
+https://t.me/proxy?server=98.86.171.7&port=80&secret=dd104462821249bd7ac519130220c25d09
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+https://t.me/proxy?server=ams1.tlgfast.com&port=443&secret=083fe0c452e2407d835537872f097c54
+https://t.me/proxy?server=937632736368677.ir.fulle7.info&port=8443&secret=EERighJJvXrFGRMCIMJdCQ%3D%3D
+https://t.me/proxy?server=ui.geodns.info.&port=4455&secret=7nnjRIGHSb16xRkTAiDCXQk%3D
+https://t.me/proxy?server=185.83.210.141&port=8569&secret=767cf6f14f461cdd166b54eddb53e1b0
+https://t.me/proxy?server=1772673667246371.ir.fulle7.info&port=8443&secret=104462821249bd7ac519130220c25d09
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.12&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی پینگ پایین
+🟢
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رویترز : ترامپ بعد از جلسه‌ دو ساعته تو اتاق وضعیت، بدون اتخاذ تصمیم نهایی درباره توافق جدید با ایران، جلسه شو ترک کرد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 11041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدم
+</div>
+
+## SoftNetConnect — post 11040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕ایت الله نیویورک تایمز: جلسه رئیس‌جمهور ترامپ در اتاق عملیات حدود دو ساعت طول کشید، اما او هنوز درباره توافق با ایران تصمیمی نگرفته است. مقام‌های دولت معتقدند که به توافق نزدیک شده‌اند، اما همچنان برخی مسائل مورد اختلاف وجود دارد، از جمله آزادسازی پول‌های…
+</div>
+
+## SoftNetConnect — post 11039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴مقامی آگاه در کاخ سفید : پرونده پول‌های بلوکه شده ایران همچنان مانعی در مذاکرات محسوب می‌شود. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️همزمان با دو انفجار در قشم پدافند بندر عباس فعال شد و از مذاکرات عالی استقبال کرد @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔴مقامی آگاه در کاخ سفید :
+
+پرونده پول‌های بلوکه شده ایران همچنان مانعی در مذاکرات محسوب می‌شود.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕وزیر کشور امریکا به فاکس نیوز: جلسه ترامپ ممکن است با اخبار بسیار مهمی همراه باشد. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸جلسه ترامپ در اتاق وضعیت به پایان رسیده، همچنان در سکوت خبری کامل هستیم، همه منتظریم ببینم ترامپ چه می‌گوید. @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍ارتش جمهورى اسلامى از سرنگونی یک فروند پهپاد آمریکایی در آسمان جزیره قشم خبر داد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 ترامپ همین الان به اتاق بیضی شکل رفت تا تصمیم نهایی بگیره
+</div>
+
+## SoftNetConnect — post 11032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕تسنیم: ریز پرنده دشمن رو تو قشم زدیم
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️همزمان با دو انفجار در قشم پدافند بندر عباس فعال شد و از مذاکرات عالی استقبال کرد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 11029
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11029_1780084568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸اینقدر مذاکرات خوب بود شش فروند هواپیمای ترابری نظامی Boeing C-17A Globemaster III نیروی هوایی ایالات متحده در راه خاورمیانه هستند.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢Proxy :
+
+
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+
+https://t.me/proxy?server=27688188587677777.ir.fulldf.info&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+https://t.me/proxy?server=ams1.tlgfast.com&port=443&secret=083fe0c452e2407d835537872f097c54
+
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11027
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11027_1780084568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صدای پدافند در قشم
+</div>
+
+## drtel — post 59266
+
+<div align="center">
+  <a href="telegram/content/drtel_59266_1780084570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسکات بسنت، وزیر خزانه‌داری آمریکا : 
+ما حدود 1 میلیارد دلار از ارزهای دیجیتال ایران رو توقیف کردیم — یعنی کیف‌پول‌هاشونو کاملاً گرفتیم.
+شاید بعضی از اون‌ها همین الان دارن از کیف پولشون استفاده می‌کنن اما نمی‌دونن توقیف شده.
+این پولیه که از جیب مردم ایران دزدیده شده بود.
+@DrTeL
+</div>
+
+## drtel — post 59264
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو اینستاگرام دارن از پزشکیان بُت میسازن؛ چرا؟ چون بعد 88 روز، اینترنتی رو که ساده‌ترین حق هر شهروند هست رو به صورت فیلتر شده برگردونده... @DrTeL
+</div>
+
+## drtel — post 59263
+
+<div align="center">
+  <img src="telegram/content/drtel_59263_1780084571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری نیویورک تایمز:
+
+نشست ترامپ تو "اتاق وضعیت" کاخ سفید به تازگی و بعد از 2 ساعت تموم شد اما ترامپ هنوز درباره هیچ توافق جدیدی با تهران به تصمیم نهایی نرسیده.
+
+@DrTeL
+</div>
+
+## drtel — post 59262
+
+<div align="center">
+  <a href="telegram/content/drtel_59262_1780084571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه پست جدید و جنجالیِ دیگه از اکانت کاخ سفید همراه این کپشن:
+
+اونا [آدم فضاییا] بین ما راه میرن.
+
+@DrTeL
+</div>
+
+## drtel — post 59258
+
+<div align="center">
+  <a href="telegram/content/drtel_59258_1780084573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مردم ایران 3 ماه اینترنت نداشتن، حالا که اینترنتشون برگشته به روال سابق، لابد دیگه به نحو احسنت ازش استفاده میکنن؛
+
+
+
+همچنان ایرانی‌ها تو اینستاگرام
+📱 :
+
+@DrTeL
+</div>
+
+## drtel — post 59257
+
+<div align="center">
+  <img src="telegram/content/drtel_59257_1780084574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+⚡️هر مسابقه یک فرصت، هر انتخاب یک هیجان!
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59256
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پدافند جزیره‌ی قشم فعال شده.
+
+@DrTeL | مهر
+</div>
+
+## drtel — post 59255
+
+<div align="center">
+  <img src="telegram/content/drtel_59255_1780084575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو اسکاتلند
+🏴󠁧󠁢󠁳󠁣󠁴󠁿، یه کشیش کاتولیک 61 ساله به یه مرد 35 ساله که به‌شدت مست بوده، تجاوز کرد؛
+درنهایت هم دادگاه اونو فقط به 19 ماه حبس محکوم کرد.
+@DrTeL
+</div>
+
+## drtel — post 59254
+
+<div align="center">
+  <img src="telegram/content/drtel_59254_1780084576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴90 روز از ترور علی خامنه‌ای توسط آمریکا و اسرائیل گذشت. @DrTeL
+</div>
+
+## drtel — post 59252
+
+<div align="center">
+  <img src="telegram/content/drtel_59252_1780084576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت رسمی Clash of clans تو اینستاگرام
+📱، انگاری زده تو کارِ تولید محتوا برای فوت فتیشا :
+
+@DrTeL
+</div>
+
+## drtel — post 59251
+
+<div align="center">
+  <a href="telegram/content/drtel_59251_1780084577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ریمیکس الان ارزش ترند شدنو داره؛
+دست به دست بکنید برسه به دست ترامپ :
+
+@DrTeL
+</div>
+
+## drtel — post 59250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قصه ی ما سر اومد
+گند ترامپ در اومد
+</div>
+
+## drtel — post 59249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری از ترامپ : ایران باید یه بار برای همیشه قبول کنه که سمت بمب هسته‌ای نمیره، تنگه هرمز هم باید همین الان باز بشه و کشتی‌ها بدون هیچ عوارض و محدودیتی رفت‌وآمد کنن؛ ما بخش زیادی از مین‌های دریایی رو از بین بردیم و ایران هم باید باقی‌مونده‌شون رو جمع کنه،…
+</div>
+
+## drtel — post 59248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست خدا عیان شد
+ترامپ کص‌زنت
+</div>
+
+## drtel — post 59246
+
+<div align="center">
+  <img src="telegram/content/drtel_59246_1780084578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+اون کشتی‌هایی که به خاطر محاصره دریایی خفن و بی‌سابقه ما تو تنگه گیر افتاده بودن، حالا می‌تونن کم‌کم راه خونه رو در پیش بگیرن؛
+
+از طرف من هم به زن و شوهرتون، پدر و مادرتون و کل خانواده‌تون سلام برسونید؛ از طرف رئیس‌جمهور محبوبتون.
+
+@DrTeL
+</div>
+
+## drtel — post 59245
+
+<div align="center">
+  <img src="telegram/content/drtel_59245_1780084579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری از ترامپ :
+ایران باید یه بار برای همیشه قبول کنه که سمت بمب هسته‌ای نمیره، تنگه هرمز هم باید همین الان باز بشه و کشتی‌ها بدون هیچ عوارض و محدودیتی رفت‌وآمد کنن؛
+
+ما بخش زیادی از مین‌های دریایی رو از بین بردیم و ایران هم باید باقی‌مونده‌شون رو جمع کنه، اون محاصره دریایی بزرگی که راه انداخته بودیم هم برداشته میشه و کشتی‌هایی که گیر افتادن می‌تونن برگردن خونه.
+اون مواد غنی‌شده هسته‌ای که زیر کوه‌ها و اعماق زمین دفن شده، با هماهنگی ایران و آژانس انرژی اتمی از زیر زمین بیرون کشیده میشه و کامل نابودش می‌کنیم. به نظر ما فقط آمریکا و چین توان انجام همچین کاری رو دارن.
+فعلاً هم هیچ پولی رد و بدل نمیشه. روی بیشتر موارد توافق کردیم و فقط چند موضوع کم‌اهمیت باقی مونده. الان هم دارم میرم اتاق وضعیت کاخ سفید تا تصمیم نهایی رو بگیرم و بعدش نتیجه رو اعلام کنم.
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 14:25
 ---
 
