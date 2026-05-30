@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 23:49
+---
+
+## SoftNetConnect — post 11082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+T.me_SoftNetConnect 🇳🇱.npvt
+</div>
+
+## SoftNetConnect — post 11081
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11081" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel ∞
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨در پی حملات سنگین حزب‌الله، به بیمارستانی در شهر نهاریا در شمال اسرائیل دستور داده شد تا بیماران را به تأسیسات زیرزمینی منتقل کند.
+
+اسرائیل فقط بد عصبانی میکنن
+😧
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11078
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨مین دریایی سپاه پاسداران که امروز در آب ها عمان پیدا شد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11077
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فراخوان کنکوری‌های ۱۴۰۵ قراره جلوی ساختمان وزارت آموزش و پرورش و شورای عالی انقلاب فرهنگی به تاثیر معدل یازدهم اعتراض کنن @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11076
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11076_1780172371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فراخوان کنکوری‌های ۱۴۰۵ قراره جلوی ساختمان وزارت آموزش و پرورش و شورای عالی انقلاب فرهنگی به تاثیر معدل یازدهم اعتراض کنن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11075
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11075_1780172372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇺 فینال لیگ قهرمانان اروپا با PSG با نتیجه
+
+
+🇫🇷 1(4) - (3)1
+❤️
+
+آرسنال شکست داد و برای دومین بار قهرمان یو سی ال شد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕 سازمان رادیو و تلویزیون اسرائیل: ارزیابی‌های آمریکا و اسرائیل بر اینه که حزب‌الله با هدف کارشکنی در مذاکرات اقدام به حملات موشکی می‌کنه.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11073
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11073_1780172373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنندج حمله به شهرام‌فر (اطلاعات) تا آخر ببینید پشماتون بریزه 
+😧
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11072
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11072_1780172375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشماتون بد می‌ریزه 
+😧
+😧
+😧
+
+
+🚨
+🔴حملات دیوانه وار ارتش اسرائیل در جنگ چهل روزه به خرم آباد لرستان
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11071
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11071_1780172377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸اینا چیه مرد ، تازه حساب هوش مصنوعی گرفتی 
+😵
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه هم‌وطن رفته فال قهوه بگیره که ببینه تو آینده چی در انتظارشه؛
+
+
+چیزی که تو فالش دیده شد :
+
+@DrTeL
+</div>
+
+## drtel — post 59308
+
+<div align="center">
+  <a href="telegram/content/drtel_59308_1780172378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴از وقتی اینترنت وصل شده مردم خیلی با فالووراشون احساس راحتی میکنن، رسما تو گالری ملتیم:
+
+@DrTeL
+</div>
+
+## drtel — post 59307
+
+<div align="center">
+  <a href="telegram/content/drtel_59307_1780172379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این نوازنده‌ی خارجی با این ترفندی که روی ویدیوهاش زده، بازدیدشون از 50 هزارتا به 10 میلیون رسیده...
+
+
+
+
+@DrTeL
+</div>
+
+## drtel — post 59306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهاجرانی سخنگوی دولت:
+
+دولت خسارت خونه‌هایی که تو جنگ تخریب شدن یا آسیب دیدن رو نمیده ولی اگر مردم خودشون بخوان بازسازی کنن، دولت مجوز رایگان ساخت دو طبقه بیشتر بهشون میده.
+
+@DrTeL
+</div>
+
+## drtel — post 59305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سطح پستاتون عالیه بخدا، همینطور پرقدرت ادامه بدین❤️
+</div>
+
+## drtel — post 59304
+
+<div align="center">
+  <img src="telegram/content/drtel_59304_1780172381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران و آمريکا با میانجی‌گری قطر🇶🇦، سَر دارایی‌های مالی مسدود شده تهران به تفاهم رسیدن. @DrTeL
+</div>
+
+## drtel — post 59303
+
+<div align="center">
+  <a href="telegram/content/drtel_59303_1780172382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق تحقیقات جدید؛
+داشتن بیش از 3 بار رابطه جنسی با پارتنر در طول هفته می‌تونه باعث بهبود خلق‌وخو و عملکرد بهتر قلب در خانم‌ها بشه.
+
+
+مطالعه‌ای روی داده‌های NHANES هم نشون داده؛ فراوانی پایین رابطه جنسی با ریسک بیشتر بیماری‌های قلبی‌عروقی مرتبط بوده.
+
+@DrTeL | nature
+</div>
+
+## drtel — post 59302
+
+<div align="center">
+  <img src="telegram/content/drtel_59302_1780172384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Champions League - Final
+
+
+🔵 PSG - 
+🔴 Arsenal
+
+⏰ Tonight 19:30
+
+🏟 Puskás Aréna
+
+ربات تلگرام وینکوبت تو این شرایط که اینترنت زیاد قوی نیست خیلی خوبه، چون کل سایت داخل خود تلگرام اجرا میشه و دیگه لازم نیست هی بین سایت و VPN درگیرشی: 
+👇
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌به کاربرانی که تا قبل از نیمه دوم بازی در وینکوبت ثبت‌نام کنند بونوس ۱۰ چرخش رایگان کازینو با جوایز نقدی و شانس بالا تعلق میگیرد.
+
+
+📌کانال رسمی وینکوبت: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 20:07
 ---
 
