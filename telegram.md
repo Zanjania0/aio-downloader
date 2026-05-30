@@ -7,6 +7,183 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 16:25
+---
+
+## SoftNetConnect — post 11065
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 وزیر جنگ آمریکا: هر لحظه آماده‌ایم به درگیری با ایران برگردیم ولی توافق اولویتمونه.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 فعالیت جنگنده های آمریکا بر فراز آسمان بغداد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11063
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11063" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel تستی
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11062
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11062_1780145745.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸پیت هگست : محاصره ادامه دارد
+</div>
+
+## drtel — post 59286
+
+<div align="center">
+  <a href="telegram/content/drtel_59286_1780145748.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس صداوسیما : آریایی‌ها قاتل بودن!
+
+اینکه بعضی‌ها میگن ما آریایی هستیم، نژادپرستیه.
+تمدن ما 65 هزار ساله‌ست، آريايی‌ها کلا 4-5 هزار سال پیش اومدن.
+آریایی‌ها همه رو کُشتن و به قدرت رسیدن، اینکه بگیم ما آریایی هستیم یعنی ما فرزندان کسایی هستیم که نسل کُشی کردن...
+@DrTeL
+</div>
+
+## drtel — post 59282
+
+<div align="center">
+  <a href="telegram/content/drtel_59282_1780145751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه پیجه پست گذاشته که سَم‌ترین عکسی که از رفیقت داری رو کامنت کن؛
+
+
+
+و اما شاهکارهایی که ملت از رفیق‌هاشون کامنت کردن :
+
+@DrTeL
+</div>
+
+## drtel — post 59281
+
+<div align="center">
+  <img src="telegram/content/drtel_59281_1780145752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🇪🇺 فینال لیگ قهرمانان اروپا
+
+[ پاری‌سن‌ژرمن 
+⚽️ - 
+⚽️ آرسنال ]
+
+
+⏰ امشب ساعت ۱۹:۳۰
+
+🏟 استادیوم پوشکاش‌آرنا
+
+
+🔗 فینال جذاب و هیجان‌انگیز امشب رو در سایت اسپورت نود با بالاترین ضرایب و بیشترین آپشن ممکن پیش‌‌بینی کنید.
+
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران جدید، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59280
+
+<div align="center">
+  <a href="telegram/content/drtel_59280_1780145753.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هگست، وزیر جنگ آمریکا :
+محاصره دریایی ایران هنوزم ادامه داره و کاملا پابرجاست.
+ایران میخواد بگه خودش داره تنگه هرمز رو کنترل میکنه درحالیکه اینطور نیست و ما داریم کنترلش میکنیم.
+@DrTeL
+</div>
+
+## drtel — post 59278
+
+<div align="center">
+  <img src="telegram/content/drtel_59278_1780145755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت گردشگری:
+تا هفته آینده "کارت‌های سفر" در اختیار مردم قرار میگیره که میتونن باهاش برن سفر عشق و حال و هزینش رو قسطی پرداخت کنن.
+
++تا چندسال پیش فقط برای خونه وام میگرفتیم، الان برای یه سفر چصکی هم باید بگیریم.
+@DrTeL
+</div>
+
+## drtel — post 59277
+
+<div align="center">
+  <img src="telegram/content/drtel_59277_1780145755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس سازمان سنجش:
+کنکور امسال پنجشنبه و جمعه - 29 و 30 مرداد برگزار میشه.
+
+@DrTeL
+</div>
+
+## drtel — post 59276
+
+<div align="center">
+  <img src="telegram/content/drtel_59276_1780145756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 محسن رضایی: ترامپ بازم داره به دیپلماسی خیانت می‌کنه!
+
+آمریکا با محاصره دریایی و زیاده‌خواهی تو مذاکرات، ثابت کرد هدف‌های دیگه داره و دنبال مذاکره نیست.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 12:35
 ---
 
