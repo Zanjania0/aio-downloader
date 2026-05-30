@@ -7,6 +7,188 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 20:07
+---
+
+## SoftNetConnect — post 11070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+T.me_SoftNetConnect 91.107.npvt
+</div>
+
+## SoftNetConnect — post 11069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕آسو‌شیتد‌پرس به نقل از یک منبع آمریکایی:
+
+ارتش آمریکا یک کشتی تجاری را که قصد داشت به سمت یکی از بنادر ایران برود، منع کرد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11068
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11068" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel ∞
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11067
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕تلگراف: دو ژنرال قدرتمند، احمد وحیدی و محمد جعفری، با هم متحد شدن تا قالیباف رو از قدرت برکنار کنن.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مدیرعامل آروان کلاد: از نظر فنی همینطوری که میشه توی یه لحظه اینترنت رو قطع کرد؛ همینطوری میشه تو یه لحظه هم وصلش کرد. زمانبر بودن بهبود وضعیت اینترنت از نظر فنی فقط بهانه ست. وضعیت اینترنت در حال حاضر بسیار ناپایدار و ضعیفه و اصلا به شرایط قبل از جنگ برنگشته
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59301
+
+<div align="center">
+  <img src="telegram/content/drtel_59301_1780159062.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند سلیمی، نماینده مجلس :
+تصمیم آخر و قطعی مجلس کشور، قانونی کردنِ مدیریت تنگه هرمزه؛ که به زودی این طرح تو مجلس تصویب و به قانون تبدیل میشه.
+باز شدن تنگه هرمز به خودمون مربوطه و اجازه نمیدیم که ترامپ بخواد تصمیم بگیره این تنگه باز بشه؛ مدیریت تنگه هرمز رو تو مجلس تبدیل به قانون میکنیم.
+از 0 تا 100 قانون "اعمال مدیریت بر تنگه هرمز" به‌طور کامل و جزء به جزء تو مجلس تصویب و نهایی میشه – کشور عمان هم موافقت‌های اولیه‌اش رو واسه این طرح اعلام کرده.
+@DrTeL | تسنیم
+</div>
+
+## drtel — post 59300
+
+<div align="center">
+  <img src="telegram/content/drtel_59300_1780159063.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضا پهلوی :
+مردم ایران باید به ابزارهایی مثل اینترنت آزاد و رسانه‌هایی مثل ایران اینترنشنال دسترسی داشته باشن تا بتونن وارد عمل بشن و حکومت رو تحت فشار قرار بدن؛
+مردم از حمله به زیرساخت‌های حکومت خوشحال شدن و حتی تو بعضی جاها خیابون‌ها رو به اسم ترامپ نام‌گذاری کردن.
+بعد از 47 سال مماشات، وقتشه دنیا کنار مردم ایران بایسته، مردم ایران بین حمله به خود کشور و حمله به حکومت تفاوت قائل میشن و این دو تا رو یکی نمی‌دونن.
+@DrTeL
+</div>
+
+## drtel — post 59299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌شاید الان خیلیا به این حرف بخندن، ولی واقعاً یه پدیده عجیب واسه آینده بشریت داره اتفاق میفته؛ یه زمانی خیلی از مردم از ترنس‌ها، شیمیل‌ها و فم‌بوی‌ها خوششون نمیومد یا حتی ازشون فاصله می‌گرفتن و حتی ازشون میترسیدن. ولی الان چی شده که اینقدر معروف و پرطرفدار…
+</div>
+
+## drtel — post 59297
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو این دوره زمونه متأسفانه هیچ‌جوره نمی‌تونید از ماتریکس فرار کنید، مخصوصاً اگه تو ایران هستین(ایران خودش یه ماتریکس مادره) ولی با داشتن هدف، ورزش کردن و حفظ دیسیپلین می‌تونید حداقل تأثیرش رو کمتر کنید.
+</div>
+
+## drtel — post 59296
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایپ سوپر مورد علاقم از اوناس که زنه مرده رو میکنه بهترینه
+</div>
+
+## drtel — post 59294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایپ سوپر مورد علاقم از اوناس که زنه مرده رو میکنه
+بهترینه
+</div>
+
+## drtel — post 59291
+
+<div align="center">
+  <a href="telegram/content/drtel_59291_1780159064.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زنگ خطر جدید برای خانم‌ها :
+
+
+آمارهای جدید نشون میده علاقه به بعضی دسته‌های محتوای LGBTQ+، مخصوصاً ترنس‌ها، دوجنسه‌ها و فم‌بوی‌ها، تو چند سال اخیر خیلی بیشتر شده و تو بعضی سایت‌های پورن جزو سریع‌ترین دسته‌های در حال رشد و پربازدید بودن؛
++یعنی جدیدا اکثریت ملت میشینن پورن‌هایی که مربوط به افراد شیمیل(دخترایی که آلت مردانه دارن) هست رو تماشا میکنن و باهاش خودارضایی میکنن...
+﻿
+@DrTeL | Them
+</div>
+
+## drtel — post 59290
+
+<div align="center">
+  <img src="telegram/content/drtel_59290_1780159066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نوشته‌ای که تو تجمعات شبانه دیده شده؛
+
+برای ما سودِ جنگ از آتش‌بس بیشتره.
+
+@DrTeL
+</div>
+
+## drtel — post 59289
+
+<div align="center">
+  <img src="telegram/content/drtel_59289_1780159066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چند روز پیش تو دزفولِ خوزستان، یه پسر 20 ساله که گویا دچار بیماری اعصاب و روان بوده، بخاطر اختلافات خانوادگی که داشته اول می‌ره با یه سلاح سرد "پدر، مادر و برادرش" رو میکُشه و بعد هم میره خودش رو از کوه میندازه پایین.
+
+@DrTeL | Rokna
+</div>
+
+## drtel — post 59288
+
+<div align="center">
+  <a href="telegram/content/drtel_59288_1780159067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علایی، فرمانده سابق نیروی دریایی سپاه:
+
+3 روز قبل شروع جنگِ ۴۰ روزه، به شمخانی گفتم آمریکا و اسرائیل جنگ رو با ترور علی خامنه‌ای شروع میکنن ؛ شمخانی گفت نه ، عمرا پیداش بکنن.
+
+خیلی اصرار کردم بهش که آقا جان اینا اطلاعات‌شون خیلی کامله میدونن کجاست؛ ولی خب ایشون گوش نداد که نداد...
+
+@DrTeL
+</div>
+
+## drtel — post 59287
+
+<div align="center">
+  <img src="telegram/content/drtel_59287_1780159070.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیت‌کوین
+🪙 که تا قبل از جنگ جزو 10 دارایی برتر جهان بود، با شروع جنگ خارمادرش یکی شد و تا 73هزار دلار ریخت، الانم تو رتبه 13ام قرار گرفته.
+‌
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 16:25
 ---
 
