@@ -7,6 +7,245 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 03:30
+---
+
+## SoftNetConnect — post 11056
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11056_1780099226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+♨️ بر اساس اطلاعیه‌ای صادر شده توسط مرکز عملیات تجارت دریایی بریتانیا (UKMTO)، این عملیات برای مقابله با مین‌های دریایی ایرانی در منطقه انجام می‌شود
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️
+🇺🇸 از سنتکام :
+
+به دریانوردان و ملوانان و خلبانان هشدار میدیم که سنتکام عملیات نظامی تو تنگه هرمز، شمال شبه‌جزیره مسندم عمان که در وسط تنگه قرار داره، بزودی انجام خواهد داد
+مراقب باشید و با ما هماهنگی های لازم انجام بدید
+
+@SoftNetCoonect | برای مردم
+</div>
+
+## SoftNetConnect — post 11053
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11053_1780099227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺کارشناس حرومزاده صدا وسیما: ایرانی ها اصلا آریایی نیستن ما اصلا نژاد اریایی نداریم این طرز فکرو غربیا اوردن تو کشورمون حالا یه عده ممکنه عصبانی بشن ازین حرفا 
+🎙مجری بی پدر : اونا که اگه بشن مهم نیست... اصلا درست نیست بگیم آریایی هستیم انگار داریم میگیم بچه…
+</div>
+
+## SoftNetConnect — post 11052
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11052_1780099227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺کارشناس حرومزاده صدا وسیما:
+ایرانی ها اصلا آریایی نیستن ما اصلا نژاد اریایی نداریم
+این طرز فکرو غربیا اوردن تو کشورمون حالا یه عده ممکنه عصبانی بشن ازین حرفا
+
+🎙مجری بی پدر : اونا که اگه بشن مهم نیست...
+اصلا درست نیست بگیم آریایی هستیم انگار داریم میگیم بچه های یه مشت قاتل نسل کشیم
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 پیت هگست وزیر جنگ آمریکا : ایران بهتره زودتر انتخاب کنه یا مذاکره هسته ای یا جنگ با آمریکا , ایندفه نه بلکه از روی آسمان و دریا از روی زمین هم باید با ما روبرو بشن! @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸 پیت هگست وزیر جنگ آمریکا :
+
+ایران بهتره زودتر انتخاب کنه یا مذاکره هسته ای یا جنگ با آمریکا , ایندفه نه بلکه از روی آسمان و دریا از روی زمین هم باید با ما روبرو بشن!
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+💢
+💢
+💢
+</div>
+
+## SoftNetConnect — post 11048
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11048_1780099229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشمامتون بد میریزه
+😧
+😧
+😧
+
+
+🔴 تازه ترین ویدیو از لحظات اولیه حمله به بیت رهبری با بیش از 50 موشک سنگر شکن!
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا هم هعی میگفتن مذاکره فهمیدن
+🤗
+
+
+🔴 نورالدین الدغیر، خبرنگار الجزیره:
+
+معمولا هر وقت جمهوری اسلامی و آمریکا به توافق نزدیک می‌شن، ناگهان صدای سلاح بلند می‌شه.
+
+با وجود خوش‌بینی‌ها نسبت به توافق، این احتمال وجود داره که فضا مقدمه یک حمله غافلگیرکننده جدید باشه و گزینه نظامی دوباره برگرده.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59274
+
+<div align="center">
+  <a href="telegram/content/drtel_59274_1780099230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بهرام آبتین که با ویدیوی "از زمان صفویه گاییدنمون، از زمان قاجار گاییدنمون..." معروف شده بود:
+
+
+
+دیدی ما مثلا دور هم جمع میشیم دستای همو میگیریم میرقصیم یا مثلا رقص کُردی میکنیم؟
+تو ترکیه حدود 15 , 16 تا از تُرک‌های ترکیه رو دیدم که دور هم حلقه زده بودن کیرشون تو کون همدیگه بود.
+این رقص فرهنگیشونه.
+‌
+@DrTeL
+</div>
+
+## drtel — post 59273
+
+<div align="center">
+  <img src="telegram/content/drtel_59273_1780099231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🇫🇷 مسابقات گرنداسلم رولان‌گاروس رو با بالاترین ضرایب در اسپورت نود پیش‌بینی کنید.
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59271
+
+<div align="center">
+  <a href="telegram/content/drtel_59271_1780099232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇹🇷 چند روز پیش تو دوزجه ترکیه، یه خانواده پیتزا سفارش میدن، بعد که جعبه رو باز میکنن، متوجه میشن یسری از مواد روی پیتزا خورده شده..
+شک‌ میکنن و فورا میرن دوربین‌ها رو چک میکنن ؛ بعد متوجه میشن پسری که پیک پیتزا بوده، اونو خورده و بعد تو همون آسانسور شاشیده!
+فیلمش حسابی وایرال میشه و پلیس، پسره رو می‌بره آسانسور رو تمیز می‌کنه و بعد بازداشتش میکنن.
+
+@DrTeL
+</div>
+
+## drtel — post 59270
+
+<div align="center">
+  <img src="telegram/content/drtel_59270_1780099234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه مقام ایرانی به الجزیره: هيچ چیزی نهایی نشده!
+
+چون تیم مذاکره آمریکا هیچ چارچوب حرفه‌ای یا اخلاقی مشخصی نداره و رفتارهای غیرقابل پیش دارن؛ مُدام هم خواسته‌هاشون رو تغییر میدن.
+
+@DrTeL
+</div>
+
+## drtel — post 59269
+
+<div align="center">
+  <a href="telegram/content/drtel_59269_1780099234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 تمرین صبحگاهی امروز هگست، وزیر جنگ آمریکا رو ناو USS Boxer به همراه نیروهای آمریکایی: @FUTBALLI18
+</div>
+
+## drtel — post 59268
+
+<div align="center">
+  <img src="telegram/content/drtel_59268_1780099236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ژنرال محسن رضایی :
+ما آمریکا رو وادار خواهیم کرد که محاصره دریایی رو پایان بده؛ حالا یا مثل بچه آدم با مذاکره قبول میکنن یا هم اگه بخوان مقاومت کنن، با یه اقدام مستقیم این کار رو انجام میدیم.
+ما خودمون رو آماده کردیم که اگه محاصره دریایی فراتر از بازه زمانی مشخصی ادامه پیدا کنه، بهشون حمله کنیم و محاصره رو بشکنیم.
+@DrTeL
+</div>
+
+## drtel — post 59267
+
+<div align="center">
+  <a href="telegram/content/drtel_59267_1780099236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جدیدترین ویدئو از 30 موشکی که دقیقه اول جنگ به سمت بیت رهبری شلیک شد؛
+
+نتیجه‌اش هم شد ترور علی خامنه‌ای و تعداد زیادی از فرمانده‌ها...
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 23:26
 ---
 
