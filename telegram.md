@@ -7,6 +7,254 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 23:22
+---
+
+## SoftNetConnect — post 11126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11125
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕منابع اسرائیلی: ترامپ در تماس تلفنی آخر خود با بنیامین نتانیاهو اعلام کرد که در صورت همکاری با واشنگتن برای این تفاهم‌ نامه 60 روزه موقت اسرائیل کاملا در لبنان و غزه آزادی عمل خواهد داشت
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍به گزارش ژئوپولتیک و منابع محلی ، فعالیت جت‌های جنگنده های ارتش بر فراز کرج در استان البرز گزارش شده است.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕اینترنشنال : مسعود پزشکیان با ارسال نامه ای به مجتبی خامنه ای خواستار استعفای خود شد @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11122
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11122" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel ∞
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+📤 Subscription :
+https://cdnsoft.sep1997.site:2096/sub/h18e22o3tg3zvxcp
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢PROXY : https://t.me/proxy?server=87.248.129.50&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d https://t.me/proxy?server=87.248.129.51&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d…
+</div>
+
+## SoftNetConnect — post 11120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢PROXY :
+
+https://t.me/proxy?server=87.248.129.50&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+https://t.me/proxy?server=87.248.129.51&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+https://t.me/proxy?server=87.248.129.12&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+https://t.me/proxy?server=ui.geodns.info.&port=4455&secret=7nnjRIGHSb16xRkTAiDCXQk%3D
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+https://t.me/proxy?server=www.bits-lab.info&port=443&secret=ee1603010200010001fc030386e24c3ad37765622e79656b74616e65742e636f6d
+https://t.me/proxy?server=ams1.tlgfast.com&port=443&secret=083fe0c452e2407d835537872f097c54
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+https://t.me/proxy?server=miinecrafto.com&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+https://t.me/proxy?server=iranroad.shop&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+https://t.me/proxy?server=001262345687881z367866752876777.ir.fulldf.info&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+tg://proxy?server=185.83.210.141&port=8569&secret=767cf6f14f461cdd166b54eddb53e1b0
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕سی‌ان‌ان: ترامپ با آزادسازی هرگونه دارایی ایران در توافق احتمالی مخالفت کرده است.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59348
+
+<div align="center">
+  <img src="telegram/content/drtel_59348_1780257128.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با این وضعیت اقتصادی، دیگه کسی جرئت مُردن هم نداره؛
+
+طبق مصوبه جدید نرخ‌بهای بهشت زهرا، قیمت خاکسپاری با افزایش 40 تا 50 درصدی، ناقابل به 9 میلیون و 750 هزار تومن رسید.
+
+@DrTeL
+</div>
+
+## drtel — post 59345
+
+<div align="center">
+  <a href="telegram/content/drtel_59345_1780257129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دخترا تو اینستاگرام ديگه زیادی دارن با ما راحت میشن :
+
+
++ هندزفری 🔞
+
+
+@DrTeL
+</div>
+
+## drtel — post 59344
+
+<div align="center">
+  <img src="telegram/content/drtel_59344_1780257131.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ دسترسی سریع و مستقیم به وینکوبت
+
+
+🟢 فرآیند ورود به سایت به شکلی طراحی شده که کاربران بدون درگیر شدن با لینک‌های متعدد یا مسیرهای غیرضروری، مستقیماً وارد محیط اصلی سایت شوند.
+
+
+📌این دسترسی از طریق ربات رسمی انجام می‌شود:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+🟢 به جای روش‌های قدیمی ورود، این ساختار یک مسیر واحد و ثابت ارائه می‌دهد که همیشه قابل استفاده است.
+
+
+📌کانال رسمی وینکوبت:
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## drtel — post 59343
+
+<div align="center">
+  <img src="telegram/content/drtel_59343_1780257133.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال: پزشکیان به دلیل "تسلط کامل فرماندهان سپاه بر اداره کشور" استعفا داد. @DrTeL
+</div>
+
+## drtel — post 59342
+
+<div align="center">
+  <img src="telegram/content/drtel_59342_1780257134.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال: پزشکیان به دلیل "تسلط کامل فرماندهان سپاه بر اداره کشور" استعفا داد. @DrTeL
+</div>
+
+## drtel — post 59341
+
+<div align="center">
+  <img src="telegram/content/drtel_59341_1780257135.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال:
+
+پزشکیان به دلیل "تسلط کامل فرماندهان سپاه بر اداره کشور" استعفا داد.
+
+@DrTeL
+</div>
+
+## drtel — post 59340
+
+<div align="center">
+  <a href="telegram/content/drtel_59340_1780257135.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بسنت وزیر خزانه‌داری آمریکا:
+اینکه مطمئن بشیم تنگه هرمز باز بمونه، اورانیوم غنی‌شده بالا رو تحویل بگیریم، و ایران سلاح هسته‌ای نداشته باشه — این یعنی کار رو تموم کردن.
+این اولین باره که بعد از 47 سال، ایرانی‌ها بالاخره حاضر شدن درباره «نداشتن سلاح هسته‌ای» حرف بزنن.
+90 درصد کارخانه‌های موشک‌سازی‌شون نابود شده... 50 درصد ارتش‌شون پول نمی‌گیرن.این یک نابودی کامل بود. ما اونا رو کاملاً له کردیم.
+
+🎙مجری:
+خب، چه نشانه‌ها و معیارهایی قراره استفاده کنید که مطمئن بشید ایران به وعده‌هاش عمل می‌کنه؟
+
+بسنت:
+بازم می‌گم... صبر کنیم ببینیم.
+
+@DrTeL
+</div>
+
+## drtel — post 59339
+
+<div align="center">
+  <img src="telegram/content/drtel_59339_1780257138.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق تحقیقات دانشگاه پنسیلوانیا آمریکا
+🇺🇸، تو عرقِ زیر بغل مردها یه سری مواد شیمیایی هست که می‌تونه روی حال و بدن زن‌ها اثر مثبت بزاره؛
+طِی این آزمایش، یه عصاره از عرق مردها رو به لب بالای خانم‌ها زدن و بعدش بعضی از خانم‌ها متوجه شدن استرسشون کمتر شده و حس آرامش بیشتری پیدا کردن.
+این مواد روی بعضی هورمون‌های بدن خانم‌ها مثل هورمون‌های مرتبط با چرخه قاعدگی هم اثر می‌ذاره و همچنین باعث تسکین درد میشه.
+@DrTeL
+</div>
+
+## drtel — post 59335
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴استایل جدید صابر ابر، بازیگر مملکت : @DrTeL
+</div>
+
+## drtel — post 59334
+
+<div align="center">
+  <img src="telegram/content/drtel_59334_1780257139.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴استایل جدید صابر ابر، بازیگر مملکت :
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 18:36
 ---
 
