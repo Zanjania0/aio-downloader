@@ -7,6 +7,357 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 03:16
+---
+
+## SoftNetConnect — post 11148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی وحید هاکان فرد بسیار مهمی نیست
+</div>
+
+## SoftNetConnect — post 11146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕امروز اندیشه تهران یک انفجار گاز معروف صورت گرفته که چهار نفر مصدوم شدن ترور هدفمند ؟ الله اعلم پروکسی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11145
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11145_1780271175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+T.me_SoftNetConnect🇩🇪.npvt
+</div>
+
+## SoftNetConnect — post 11144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕امروز اندیشه تهران یک انفجار گاز معروف صورت گرفته که چهار نفر مصدوم شدن ترور هدفمند ؟ الله اعلم پروکسی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11143
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11143" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel ∞
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+
+tg://proxy?server=87.248.129.13&port=15&secret=7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+
+پروکسی  پروکسی  پروکسی  پروکسی  پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11142
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11142_1780271176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕امروز اندیشه تهران یک انفجار گاز معروف صورت گرفته که چهار نفر مصدوم شدن ترور هدفمند ؟ الله اعلم پروکسی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11141
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11141_1780271177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجیبه
+
+
+🚨
+🇺🇸سوخت رسان های آمریکایی بیشتری در حال پرواز از فرودگاه بن گوریون به سمت خلیج فارس هستن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11140
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11140_1780271178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇮🇶با تایید وزارت ارتباطات عراق اینترنت رایگان در اختیار مردم این کشور قرار گرفت!
+
+
+🌐بیانیه وزارت ارتباطات عراق :
+علاوه بر حرم‌های مقدس و کورنیش بصره اینترنت رایگان در مکان‌های زیر: کورنیش ابونواس، کورنیش کوفه، کورنیش ناصریه، کورنیش حله و کورنیش دیوانیه در دسترس مردم قرار گرفت
+
+پروکسی | پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕شرایط ارسالی جدید آمریکا به جمهوری اسلامی مورد موافقت قرار نگرفت
+
+پروکسی  پروکسی  پروکسی  پروکسی  پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢
+💢
+💢
+💢
+</div>
+
+## SoftNetConnect — post 11137
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11137_1780271179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕امروز اندیشه تهران یک انفجار گاز معروف صورت گرفته که چهار نفر مصدوم شدن
+
+ترور هدفمند ؟ الله اعلم
+
+پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢PROXY :
+
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+tg://proxy?server=87.248.129.13&port=15&secret=7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+
+🟢پروکسی های جدید :
+
+پروکسی  پروکسی  پروکسی  پروکسی  پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11135
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👍سپاه پاسداران با موشک و پهباد به اردوگاه گروهک های کرد ایرانی در اربیل عراق حمله کرده و دلیل چندین انفجار در اربیل عراق برخورد موشک و پهباد به اردوگاه این احزاب بوده
+
+پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پرواز تعداد زیادی از سوخت رسان های آمریکایی و همینطور هواپیمای هشدار سریع E-3G بر فراز خلیج فارس
+
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+پروکسی | پروکسی |
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌وزارت خارجه مکزیک به تیم ملی جمهوری اسلامی ویزا نمی‌ده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌وزارت خارجه مکزیک به تیم ملی جمهوری اسلامی ویزا نمی‌ده
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فعالیت پدافند در قم
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59359
+
+<div align="center">
+  <a href="telegram/content/drtel_59359_1780271180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چالشی که جدیدا مد شده ولی در راستای همون چالش قبلی روسی یعنی «Booty transition» قرار داره؛ اینطوریه که مردم با آهنگ «Set me free» میان از خودشون فیلم میگیرن و یهو دوربین رو میبرن سمت باسن🍑 مبارکشون و ادامه ماجرا… +ازوقتی که ملت دیدن ویو تو این‌چیزاست، حتی…
+</div>
+
+## drtel — post 59358
+
+<div align="center">
+  <img src="telegram/content/drtel_59358_1780271182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🇫🇷 مسابقات گرنداسلم رولان‌گاروس رو با بالاترین ضرایب در اسپورت نود پیش‌بینی کنید.
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59357
+
+<div align="center">
+  <img src="telegram/content/drtel_59357_1780271184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امیر تتلو :
+بعد از 23 روز تمرین خیلی سنگین برای شرکت در جام جهانی، بدنم واقعاً خسته شده و بدون امکانات حرفه‌ای توان ادامه دادن رو ندارم؛
+هدفم اینه که تو جام جهانی 2026 حضور داشته باشم، ولی برای این سطح، فقط تمرین کافی نیست؛ نیاز به ریکاوری حرفه‌ای، تغذیه درست، زمین چمن استاندارد و تمرین با بازیکنای سطح بالا دارم.
+با این حال با تمام توان تمرین کردم و هنوزم آماده‌ام بیشتر تلاش کنم. به خدا توکل دارم و مطمئنم اگر یه فرصت برای دیده شدن و بررسی شدن تو مسیر تیم ملی بهم بدن، می‌تونم خودمو ثابت کنم.
+درخواستم فقط یه فرصته برای سنجیده شدن تو مسیر تیم ملی و جام جهانی 2026، خواهشاً فقط یه بار بهم اعتماد کنید.
+@FUTBALLI18
+</div>
+
+## drtel — post 59355
+
+<div align="center">
+  <a href="telegram/content/drtel_59355_1780271185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حسین طاهری، مداح :
+اگه دارین مذاکره می‌کنید به ماهم بگین که حداقل تکلیف خودمونو تو این دورهم جمع شدنایِ شبانه بدونیم.
+
+
+@DrTeL
+</div>
+
+## drtel — post 59354
+
+<div align="center">
+  <img src="telegram/content/drtel_59354_1780271187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گفته روانشناسان:
+وفادارترین پارتنرها و باحال ترین دوستان، افرادی هستن که از تنهایی خودشون لذت میبرن؛
+آدمایی که از ته دل با تنهایی و خلوت خودشون حال می‌کنن، معمولاً تو رابطه‌ها وفادارترن. چون از روی ترسِ تنها موندن یا نیاز به تأیید دیگران وارد رابطه نمی‌شن، بلکه آگاهانه انتخاب می‌کنن. این افراد معمولاً به‌جای کلی دوست و رابطه سطحی، چند تا رابطه عمیق و واقعی دارن. از اونجایی که اعتمادبه‌نفسشون از خودشون میاد، کمتر دنبال جلب توجه هستن و احتمال خیانت یا رفتارهای عجولانه توشون کمتره. همچنین چون برای حریم شخصی خودشون ارزش قائلن، به مرزها و حریم شریک زندگیشون هم احترام می‌ذارن. در کل، علاقه به تنهایی سالم معمولاً نشونه بلوغ عاطفی، کنترل احساسات و تعهد بیشتره.
+
+@DrTeL | The Guardian
+</div>
+
+## drtel — post 59352
+
+<div align="center">
+  <img src="telegram/content/drtel_59352_1780271188.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق آمار؛ بعد برگشت اینترنت مملکت، ثبت‌نام کاربرای ایرانی واسه سرویسِ «Proton VPN» بیشتر از 25 هزار درصد افزایش داشته!
+
+@DrTeL
+</div>
+
+## drtel — post 59351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی ممبراتونو از سُک سُک زدین؟
+</div>
+
+## drtel — post 59350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن پزشکیان ترور شده
+یه صحت سجنی کنین لطفا
+</div>
+
+## drtel — post 59349
+
+<div align="center">
+  <img src="telegram/content/drtel_59349_1780271189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر ارتباطات عراق
+🇮🇶 اعلام کرده که تو این 5 نقطه:
+منطقه تفریحی ابونواس تو بغداد
+منطقه تفریحی کوفه تو نجف اشرف
+منطقه تفریحی ناصریه تو ذی‌قار
+منطقه تفریحی حله تو بابل
+منطقه تفریحی دیوانیه
+که مناطق تفریحی گردشگری به حساب میان، قراره به شهروانداش اینترنت رایگان ارائه بده!
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 23:22
 ---
 
