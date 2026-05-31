@@ -7,6 +7,337 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 18:36
+---
+
+## SoftNetConnect — post 11118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+🚨
+⭕️
+🇫🇲استقرار نیروهای ناتو در نزدیکی خلیج فارس؛
+
+آمادگی برای مداخله نظامی
+❗️
+
+
+🚨
+🇫🇲رئیس کمیته نظامی ناتو: احتمال عملیات برای بازگشایی تنگه هرمز.
+
+افزایش حضور نظامی متحدان برای مقابله با مسدودسازی مسیرهای بین‌المللی.
+
+@Softnetconnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 11116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕سی‌بی‌اس: میانجی‌ها هنوز دارن روی توافق بین تهران و واشینگتن کار میکنن.
+
+ترامپ روز جمعه متن توافق رو دوباره اصلاح کرده و نسخه جدیدش رو فرستاده ایران تا تأییدش کنه، ولی تا الان هنوز پاسخی از طرف تهران داده نشده.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢متصل تست شده
+
+https://t.me/proxy?server=proxy.speedbreaker.info&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+https://t.me/proxy?server=iran.protocolsix.info.&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+https://t.me/proxy?server=proxy.speedbreaker.info&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+https://t.me/proxy?server=test.trackmebro.info.&port=8443&secret=7nnnAQIAAQAH8AMDhuJMOt0%3D
+
+https://t.me/proxy?server=proxy.speedbreaker.info&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+@Softnetconnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11113
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11113_1780239973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢هنوزم متصل
+</div>
+
+## SoftNetConnect — post 11112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+T.me_SoftNetConnect 🇹🇷 پایین ترین پینگ.npvt
+</div>
+
+## SoftNetConnect — post 11111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢Proxy:
+
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=7hYDAQIAAQAB_AMDhuJMOt1iaXNjb3R0aS55ZWt0YW5ldC5jb20
+
+https://t.me/proxy?server=hajfatal.asperin.info..&port=8443&secret=7hP___8QA8wwBapQB-5wCdxwYW5lbC55ZWt0YW5ldC5jb20%3D
+
+https://t.me/proxy?server=87.248.129.51&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+tg://proxy?server=35.178.212.203&port=80&secret=dd104462821249bd7ac519130220c25d09
+@Softnetconnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11110
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11110_1780239974.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دسترسی دیتاسنتر همراه اول به اینترنت برقرار شد
+
+اولین نشانه بازگشت اینترنت به دیتاسنتر ها باید منتظر باشیم و وضعیت بقیه دیتاسنتر ها رو هم ببینیم
+
+@Softnetconnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕اسرائیل هیوم: ترامپ به دلیل ترس از شکست در انتخابات میان دوره ای جنگ را متوقف کرد و بعد از انتخابات جنگ را ادامه خواهد داد
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11108
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11108" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel ∞
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11107
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️طبق گزارش مردمی تأیید نشده صدای انفجار در بندرعباس و قشم به گوش رسیده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️طبق گزارش مردمی تأیید نشده صدای انفجار در بندرعباس و قشم به گوش رسیده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر تایید کرد 
+✅
+</div>
+
+## SoftNetConnect — post 11103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️طبق گزارش مردمی تأیید نشده صدای انفجار در بندرعباس و قشم به گوش رسیده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️طبق گزارش مردمی تأیید نشده صدای انفجار در بندرعباس و قشم به گوش رسیده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11101
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️طبق گزارش مردمی تأیید نشده صدای انفجار در بندرعباس و قشم به گوش رسیده @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11100
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️طبق گزارش مردمی تأیید نشده صدای انفجار در بندرعباس و قشم به گوش رسیده
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+🚨
+⭕️
+⭕️
+</div>
+
+## drtel — post 59333
+
+<div align="center">
+  <img src="telegram/content/drtel_59333_1780239975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهاجرانی سخنگوی دولت:
+عشقای من، درحال حاضر امکان افزایش مبلغ کالابرگ وجود نداره چون توانش رو نداریم.
+
+@DrTeL
+</div>
+
+## drtel — post 59332
+
+<div align="center">
+  <img src="telegram/content/drtel_59332_1780239976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد از وصل شدن اینترنت، حالا خبرگزاری فارس یه کمپینی رو پوشش داده تحت عنوان "قطع داوطلبانه‌ی اینترنت بین‌الملل" و حرف حسابشم اینه که:
+
+"چرا اینترنت مارو وصل کردید؟ یه گزینه بذارید که خودمون بتونیم اینترنت بین‌الملل خودمونو قطع کنیم."
+
+@DrTeL
+</div>
+
+## drtel — post 59329
+
+<div align="center">
+  <a href="telegram/content/drtel_59329_1780239977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درحالی که رسانه‌ها میگن یکی از شروط اصلی توافق ایران پایان دادن به جنگ تو لبنانه، اسرائیل از دو روز پیش داره سنگین‌ترین حملاتش رو به جنوب لبنان انجام میده... + نتانیاهو گفته ارتش اسرائیل با قدرت به حملات علیه حزب‌الله ادامه خواهد داد. @DrTeL
+</div>
+
+## drtel — post 59328
+
+<div align="center">
+  <a href="telegram/content/drtel_59328_1780239979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اگه قصد کاشتِ مو داری؛
+
+این ویدئویی که تو چند روز اخیر ميليونی ویو خورده رو یه بار ببین🔞
+
+
+@DrTeL
+</div>
+
+## drtel — post 59327
+
+<div align="center">
+  <a href="telegram/content/drtel_59327_1780239982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎ اگه این روزا سایتا سخت لود میشن، ربات تلگرام وینکوبت خیلی کارو راحت کرده:
+👇
+
+
+🤖 @Wincobet_bot
+
+بدون اینکه از تلگرام خارج شی میتونی مستقیم وارد بخش بازی‌ها و کازینو بشی، پیش‌بینی ثبت کنی و حتی واریز و برداشت انجام بدی.
+
+▪︎حالت Mini App داخل تلگرامه و خیلی سبک‌تر و سریع‌تر باز میشه:
+👇
+
+
+🤖 @Wincobet_bot
+</div>
+
+## drtel — post 59326
+
+<div align="center">
+  <a href="telegram/content/drtel_59326_1780239984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عادل فردوسی‌پور اینجوری گزارشِ فینال چمپیونزلیگ رو شروع کرد :
+
+
+
+فوتبال و تماشاش، تنها یک لحظه توقفه، نه نقطه فراموشی؛ فراموش نمی‌کنیم که بیرون از زمین در این چند ماه ، چه روزهای سختی بر مردم عزیز ما گذشت و میگذره؛ و چه جان های عزیز و بی‌گناهی از دست رفتن...
+
+گزارش این بازی رو به همه مردم عزیزی که مظلومانه از بین ما رفتن و میتونستن تماشاگر پرشور این بازی باشن، تقدیم میکنم❤️‍🩹
+
+
+@FUTBALLI18
+</div>
+
+## drtel — post 59323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود درآورد؛
+
+پزشکیان دیروز تو نشست مدیریت بحران آب، گفت به جای پایین‌آوردن درجهٔ کولرها، کت‌هاتون رو دربیارید و خودشم با تی‌شرت نشست :
+
+@DrTeL
+</div>
+
+## drtel — post 59322
+
+<div align="center">
+  <a href="telegram/content/drtel_59322_1780239987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیشب حامیان حکومت داشتن شعارِ "با قاتلین رهبر، مذکره نداریم | جان امام در خطره ، مذاکره بی‌ثمره" میدادن که آخرش یکی از مسئولین امنیت اومد بیرونشون کرد:
+
+@DrTeL
+</div>
+
+## drtel — post 59321
+
+<div align="center">
+  <img src="telegram/content/drtel_59321_1780239989.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ روز جمعه تو اتاق وضعیت کاخ سفید، بندهای توافق با ایران رو دید و یسری اصلاحيه درباره مواد هسته‌ای ایران و تنگه هرمز به تیمش داد؛
+
+حالا تا این موارد بره برسه دست مسئولين ارشد ایران و همچنین مجتبی خامنه‌ای، و اونا هم جواب بدن، حداقل 3 روز طول می‌کشه چون تو جایی شبیه به غار هستن و از ایمیل استفاده نمی‌کنن .
+
+@DrTeL | Axios
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 13:30
 ---
 
