@@ -7,6 +7,170 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 13:30
+---
+
+## SoftNetConnect — post 11098
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11098_1780221603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : بزرگ‌ترین سرمایه ایران، «رسانه‌های فیک‌نیوز» هستن که مدام موفقیت‌های آمریکا رو کوچک جلوه میدن 
+🎙خبرنگار شما یه پیروزی بزرگ توی یه نبرد به دست میارید ولی اونا میگن شکست خوردید... این واقعاً چیز بدیه برای کشور ما @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11097
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11097_1780221604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : بزرگ‌ترین سرمایه ایران، «رسانه‌های فیک‌نیوز» هستن که مدام موفقیت‌های آمریکا رو کوچک جلوه میدن
+
+
+🎙خبرنگار شما یه پیروزی بزرگ توی یه نبرد به دست میارید
+
+ولی اونا میگن شکست خوردید... این واقعاً چیز بدیه برای کشور ما
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11096
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11096_1780221606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ : در حالی که جنگ داریم، اقتصادمون داره رکورد می‌زنه
+- امروز هم یه رکورد تاریخی دیگه ثبت شد؛ عدد ۶۹ به بالاترین سطح تاریخش رسید. همین امروز. با اینکه وسط جنگ هستیم
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🪖این وسط نیروهای ارتش اسرائیل امروز قلعه بوفورت رو تو جنوب لبنان اشغال کردن؛ از زمان خروج کامل اسرائیل تو سال ۲۰۰۰، این اولین باره که نیروهای اسرائیلی به این نقطه برمی‌گردن.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕نیویورک تایمز به نقل از یک مقام آمریکایی: ترامپ خواسته‌های ایران رو رد کرده و یک پیشنهاد متقابل سخت‌تر به ایران ارسال کرده ! این اقدام با هدف تسریع روند و فشار به ایران برای موافقت با پیشنهاد فعلی انجام شده . Proxy - Proxy - Proxy @SoftNetConnect…
+</div>
+
+## SoftNetConnect — post 11090
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11090_1780221607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕نیویورک تایمز به نقل از یک مقام آمریکایی:
+
+ترامپ خواسته‌های ایران رو رد کرده و یک پیشنهاد متقابل سخت‌تر به ایران ارسال کرده !
+
+این اقدام با هدف تسریع روند و فشار به ایران برای موافقت با پیشنهاد فعلی انجام شده .
+
+Proxy - Proxy - Proxy
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## SoftNetConnect — post 11088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕یکی از مقامات کاخ سفید، به آکسیوس: آماده ایم یک هفته یا بیشتر منتظر بمانیم تا اطمینان حاصل کنیم که رئیس جمهور به خواسته های خود از ایران می رسد.
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله رو یکی از زیر دست اسرائیل نجات بده
+یعنی حزب الله فروخته شده؟
+</div>
+
+## SoftNetConnect — post 11086
+
+<div align="center">
+  <a href="telegram/content/SoftNetConnect_11086_1780221608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادل فردوسی‌پور دیشب گزارش فینال UCL اینجوری آغاز کرد..
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕روزنامه کیهان:
+به دلیل نقض آتش‌بس در لبنان، میتونیم جنگ علیه اسرائیل رو آغاز کنی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش هایی مبنی بر صدای جنگنده بر بعضی از مناطق ایران گزارش میشود .
+
+
+
+🔴هیچگونه اطلاعیه ای در مورد جنگنده های ایران نداده شده این گزارشات از دیروز شروع شده.
+
+
+🔴به گفته کاربران جنگنده و پهپاد هایی در آسمان دیده اند که مشخص نیست برای جمهوری اسلامی است یا برای اسراییل و آمریکا.
+
+
+
+♨️ امکان زیاد برای ارتش هستن
+
+پروکسی پروکسی پروکسی پروکسی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## drtel — post 59320
+
+<div align="center">
+  <img src="telegram/content/drtel_59320_1780221610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 31 May، روز لبخنده؛
+
+این پست رو بفرست به کسی که خوشگل‌ترین لبخندِ جهان رو داره‌.
+
+@DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 03:17
 ---
 
