@@ -7,6 +7,492 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 22:59
+---
+
+## SoftNetConnect — post 11224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل، اسرائیل کاتز، اعلام کرد که واشنگتن مانع از "دفاع اسرائیل از شهرهای شمالی‌اش" نخواهد شد و نیروهای اسرائیلی به "هر جایی که لازم باشد" در لبنان خواهند رسید.
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی قوی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11223
+
+<div align="center">
+  <a href="https://t.me/SoftNetConnect/11223" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 Npv tunnel ∞ 
+🇦🇶
+
+
+🔑 Password: @SoftNetConnect
+
+
+📁 App
+
+
+➡️تا میتونید تو همه اپا پخش کنید همه وصل شن
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آینده ی سیاسی نتانیاهو نابود شد 
+🔴وزیر بن‌گویر: آقای نخست‌وزیر، شما گفتید که یک نخست‌وزیر قدرتمند در صورت امکان به رئیس‌جمهور آمریکا «بله» می‌گوید و در صورت ضرورت «نه». اکنون زمان آن است که به دوست ما، رئیس‌جمهور ترامپ، «نه» گفته شود. اکنون زمان آن است که…
+</div>
+
+## SoftNetConnect — post 11221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یائیر لاپید رهبر اپوزیسیون و سیاستمدار اسرائیلی، پس از اعلام آتش‌بس، نتانیاهو را متهم کرد. گفت اون نخست وزیر نیست بلکه عروسک خیمه شب بازی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢لیست جدید پروکسی :
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+
+پروکسی قوی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یائیر لاپید رهبر اپوزیسیون و سیاستمدار اسرائیلی، پس از اعلام آتش‌بس، نتانیاهو را متهم کرد.
+
+گفت اون نخست وزیر نیست بلکه عروسک خیمه شب بازی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆕اسرائیلیا و شبکه های اسرائیلی به حدی بد گرفتن رو ترامپ نگم براتون
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی قوی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸پست جدید ترامپ در تروث سوشال: «من تماس بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل داشتم؛ هیچ نیروی نظامی به بیروت نخواهد رفت و تمام نیروهایی که در راه بودند نیز پیش از این بازگردانده شده‌اند. به همین ترتیب، از طریق نمایندگان بلندپایه، گفتگوهای…
+</div>
+
+## SoftNetConnect — post 11216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸پست جدید ترامپ در تروث سوشال: «من تماس بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل داشتم؛ هیچ نیروی نظامی به بیروت نخواهد رفت و تمام نیروهایی که در راه بودند نیز پیش از این بازگردانده شده‌اند. به همین ترتیب، از طریق نمایندگان بلندپایه، گفتگوهای…
+</div>
+
+## SoftNetConnect — post 11215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸پست جدید ترامپ در تروث سوشال: «من تماس بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل داشتم؛ هیچ نیروی نظامی به بیروت نخواهد رفت و تمام نیروهایی که در راه بودند نیز پیش از این بازگردانده شده‌اند. به همین ترتیب، از طریق نمایندگان بلندپایه، گفتگوهای…
+</div>
+
+## SoftNetConnect — post 11214
+
+<div align="center">
+  <img src="telegram/content/SoftNetConnect_11214_1780342187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸پست جدید ترامپ در تروث سوشال: «من تماس بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل داشتم؛ هیچ نیروی نظامی به بیروت نخواهد رفت و تمام نیروهایی که در راه بودند نیز پیش از این بازگردانده شده‌اند. به همین ترتیب، از طریق نمایندگان بلندپایه، گفتگوهای بسیار خوبی با حزب‌الله داشتم و آن‌ها موافقت کردند که تمامی تیراندازی‌ها (درگیری‌ها) متوقف شود؛ به این صورت که اسرائیل به آن‌ها حمله نخواهد کرد و آن‌ها نیز به اسرائیل حمله نمی‌کنند.
+
+رئیس‌جمهور دونالد جی. ترامپ»
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی قوی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕کانال 12 اسرائیل:
+تا ساعاتی دیگر مشخص خواهد شد اسرائیل حملات به لبنان رو انجام میده یا خیر. درصورت این اتفاق احتمال زیاد شروع درگیری مجدد با ایران وجود داره.
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی قوی
+
+@Softnetconnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رادیو و تلوزیون اسرائیل: نتانیاهو درحال متقاعد‌ کردن ترامپ برای حمله به بیروت است! پروکسی | پروکسی | پروکسی | پروکسی پروکسی | پروکسی | پروکسی | پروکسی پروکسی قوی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕رادیو و تلوزیون اسرائیل:
+نتانیاهو درحال متقاعد‌ کردن ترامپ برای حمله به بیروت است!
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی قوی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕به نقل از کانال 11 عبری : حمله ضاحیه بیروت توسط آمریکا به تعویق افتاد پروکسی | پروکسی | پروکسی | پروکسی پروکسی | پروکسی | پروکسی | پروکسی پروکسی قوی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🆕به نقل از کانال 11 عبری : حمله ضاحیه بیروت توسط آمریکا به تعویق افتاد پروکسی | پروکسی | پروکسی | پروکسی پروکسی | پروکسی | پروکسی | پروکسی پروکسی قوی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸
+📞
+🇮🇱همزمان با تماس تلفنی ترامپ و نتانیاهو مراسم رییس جدید موساد لغو شد پروکسی | پروکسی | پروکسی | پروکسی پروکسی | پروکسی | پروکسی | پروکسی پروکسی قوی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇺🇸
+📞
+🇮🇱همزمان با تماس تلفنی ترامپ و نتانیاهو مراسم رییس جدید موساد لغو شد
+
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی | پروکسی
+پروکسی قوی
+
+@SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🆕اکسیوس : حزب‌الله به دولت ترامپ گفته که آماده‌ست همین الان با اسرائیل یه آتش‌بس کامل و فوری داشته باشه پروکسی | پروکسی | پروکسی | پروکسی پروکسی | پروکسی | پروکسی | پروکسی پروکسی قوی @SoftNetConnect | برای مردم
+</div>
+
+## SoftNetConnect — post 11204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💢
+🇺🇸دونالد ترامپ به ان‌بی‌سی نیوز درباره مذاکرات با ایران گفت: ما بیش از حد صحبت کرده‌ایم، سکوت کردن خوب خواهد بود. اگر گزارش‌ها مبنی بر تعلیق مذاکرات ایران با آمریکا درست باشد، «اشکالی ندارد» ترامپ همچنین گفت: «این به آن معنا نیست که ما برویم و شروع به…
+</div>
+
+## drtel — post 59386
+
+<div align="center">
+  <img src="telegram/content/drtel_59386_1780342189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : یه تماس خیلی خوب با نتانیاهو، نخست‌وزیر اسرائیل، داشتم و اون به من گفته که دیگه هیچ نیرویی قرار نیست بره بیروت
+🇱🇧، و حتی اون نیروهایی هم که داشتن می‌رفتن رو برگردوندن؛ همچنین از طریق آدم‌های خیلی نزدیک و واسطه‌ها، یه تماس خیلی خوب هم با حزب‌الله داشتم…
+</div>
+
+## drtel — post 59385
+
+<div align="center">
+  <img src="telegram/content/drtel_59385_1780342190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+اصلاً برام مهم نیست مذاکرات با ایران تموم بشه یا نه؛
+
+راستش به تخمم نیست که تموم بشه یا نه، اصلاً مهم نیست، اصلاً برام اهمیتی نداره.
+
+@DrTeL | CNBC
+</div>
+
+## drtel — post 59384
+
+<div align="center">
+  <img src="telegram/content/drtel_59384_1780342191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل قصد داشت یه حمله شدید و گسترده به ضاحیه جنوبی بیروت🇱🇧 انجام بده، اما تو آخرین لحظات بعد از دخالت آمریکا، این حمله لغو شد! @DrTeL | Kan News
+</div>
+
+## drtel — post 59383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل قصد داشت یه حمله شدید و گسترده به ضاحیه جنوبی بیروت🇱🇧 انجام بده، اما تو آخرین لحظات بعد از دخالت آمریکا، این حمله لغو شد! @DrTeL | Kan News
+</div>
+
+## drtel — post 59382
+
+<div align="center">
+  <img src="telegram/content/drtel_59382_1780342192.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل قصد داشت یه حمله شدید و گسترده به ضاحیه جنوبی بیروت🇱🇧 انجام بده، اما تو آخرین لحظات بعد از دخالت آمریکا، این حمله لغو شد!
+
+@DrTeL | Kan News
+</div>
+
+## drtel — post 59381
+
+<div align="center">
+  <img src="telegram/content/drtel_59381_1780342193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+هیچ نشونه‌ای از طرف ایران نگرفتیم که مذاکرات با آمریکا رو متوقف کرده باشن، ولی اگه این خبرها درست باشه هم مشکلی نیست؛
+فکر می‌کنم زیادی حرف زدیم... یه مدت سکوت کنیم بهتره.
+این سکوت ما به این معنی نیست که قراره بمباران رو شروع کنیم.
+به محاصره ادامه می‌دیم، این محاصره مثل یه تیکه فولاد محکمه.
+فکر کنم هر چقدر اونا بخوان میتونم صبر کنم چون اونا هستن که دارن کلی پول از دست می‌دن.
+@DrTeL | NBC News
+</div>
+
+## drtel — post 59380
+
+<div align="center">
+  <img src="telegram/content/drtel_59380_1780342193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمار بازدهی بازارهای ایران تو یک سال اخیر :
+
+1. طلا با بازدهی 173 درصدی.
+2. پژو 207 با بازدهی 132 درصدی.
+3. دلار با بازدهی 104 درصدی.
+4. بورس با بازدهی 36 درصدی.
+@DrTeL
+</div>
+
+## drtel — post 59379
+
+<div align="center">
+  <a href="telegram/content/drtel_59379_1780342194.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل🇮🇱 : ما به سراسر لبنان🇱🇧 از ضاحیه گرفته تا صور، حمله میکنیم و حالا حالاها به حملات‌مون ادامه میدیم. @DrTeL
+</div>
+
+## drtel — post 59378
+
+<div align="center">
+  <img src="telegram/content/drtel_59378_1780342195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالبیاف:
+محاصره دریایی و تشدید جنایات جنگی تو لبنان توسط رژیم صهیونیستیِ نسل‌کش، نشون واضحه که آمریکا داره آتش‌بس رو نقض میکنه.
+
+هر انتخابی یه قیمتی داره، و بالاخره نوبت پرداختش می‌رسه. همه چی سر جاش می‌افته.
+
+@DrTeL
+</div>
+
+## drtel — post 59377
+
+<div align="center">
+  <img src="telegram/content/drtel_59377_1780342196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: طبق گفته سخنگوی ارشد نیروهای مسلح؛ تداوم جنایات وحشیانه علیه لبنان واسه نیروهای مسلح ایران قابل تحمل نخواهد بود. @DrTeL
+</div>
+
+## drtel — post 59376
+
+<div align="center">
+  <img src="telegram/content/drtel_59376_1780342197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم : به علت جنایت‌هایی که اسرائیل داره تو لبنان میکنه که عینِ نقض شدن آتش‌بسه، ایران گفتگوها و تبادل متن از طریق میانجی با آمریکا رو متوقف کرد. @DrTeL
+</div>
+
+## drtel — post 59375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم :
+
+به علت جنایت‌هایی که اسرائیل داره تو لبنان میکنه که عینِ نقض شدن آتش‌بسه، ایران گفتگوها و تبادل متن از طریق میانجی با آمریکا رو متوقف کرد.
+
+@DrTeL
+</div>
+
+## drtel — post 59373
+
+<div align="center">
+  <a href="telegram/content/drtel_59373_1780342198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل امروز بخش‌هایی از شهر صور توی جنوب لبنان رو تقریبا با خاک یکسان کرد: @DrTeL
+</div>
+
+## drtel — post 59372
+
+<div align="center">
+  <a href="telegram/content/drtel_59372_1780342200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمود قیم، مداح :
+هی میان میگن شما عرب پرستید؛ آره ما عرب می‌پرستیم.
+
+کوروش، کبیر نیست؛ کبیر اسم حیدره.
+ما علی رو داریم ، شما کی رو دارید؟
+
+
+@DrTeL
+</div>
+
+## drtel — post 59371
+
+<div align="center">
+  <img src="telegram/content/drtel_59371_1780342203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+⚡️هر مسابقه یک فرصت، هر انتخاب یک هیجان!
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## drtel — post 59370
+
+<div align="center">
+  <img src="telegram/content/drtel_59370_1780342204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شمسی، قائم مقام وزیر علوم درباره نحوه برگزاری امتحانات دانشجوها :
+
+- دانشجویان کارشناسی :
+آموزش‌ِ مجازی - امتحانات هم تا اطلاع ثانوی مجازی
+
+- دانشجویان کارشناسی ارشد و دکتری :
+آموزشِ حضوری - امتحانات هم قطعا حضوری
+
+@DrTeL
+</div>
+
+## drtel — post 59369
+
+<div align="center">
+  <img src="telegram/content/drtel_59369_1780342205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز صبح تو دانشکده‌ دندونپزشکی قزوین، یه مرده با کلت کمری وارد دانشگاه شد و همونجا زنش رو کشت و بعدشم به خودش شلیک و خودکشی کرد...
+
+@DrTeL | رکنا
+</div>
+
+## drtel — post 59368
+
+<div align="center">
+  <img src="telegram/content/drtel_59368_1780342206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز 1 June ، روز لاک زدن به ناخن‌هاست؛
+
+این پست رو به هرکی بفرستی، باید لاکِ امروزش رو بهت نشون بده
+💅
+
+@DrTeL
+</div>
+
+## drtel — post 59366
+
+<div align="center">
+  <img src="telegram/content/drtel_59366_1780342207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: آژیر خطر تو کویت فعال شده و همزمان صداهای انفجار هم شنیده شده. +تعدادی از ممبرای خوزستانی هم از پرتاب موشک از سمت امیدیه خوزستان خبر دادن. @DrTeL
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 03:16
 ---
 
